@@ -37,7 +37,5 @@ Para consultar una perfecta anatomía del arroz con leche, conocer variaciones y
 
 <!-- 
 	-- http://blogmegasilvita.com/2014/10/arroz-con-leche-receta-definitiva.html
-	-- http://www.sophiebakery.es/2015/10/como-hacer-arroz-con-leche-perfecto-7.html
-	-- http://smittenkitchen.com/blog/2009/01/vanilla-almond-rice-pudding
 	-- http://smittenkitchen.com/blog/2010/02/arroz-con-leche-rice-pudding
 	-->
