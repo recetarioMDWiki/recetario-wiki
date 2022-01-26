@@ -2,16 +2,16 @@
 
 **Ingredientes**
 
-- 3 plátanos maduros
+- 3 plátanos maduros (unos 295 g)
 - 85 g (6 tablespoons) de mantequilla derretida
 - 2 huevos, a temperatura ambiente
 - 170 g de yogur griego
 - 2 teaspoons de pasta o extracto natural de vainilla
 - 260 g (2 cups) de harina de trigo
 - 1 teaspoon de bicarbonato sódico
-- 3/4 cup de azúcar
+- 160 g (3/4 cup) de azúcar
 - 1 teaspoon de sal
-- 2/3 cup de Nutella
+- 160 g (2/3 cup) de Nutella
 
 **Preparación**
 
@@ -32,6 +32,8 @@ Dejamos enfriar unos 15 minutos en el molde, desmoldamos y dejamos enfriar por c
 En la receta original utiliza yogur griego 0% M.G., pero no los he encontrado.
 
 Si te parece demasiada Nutella, se puede reducir la cantidad al gusto.
+
+Podemos usar una mezcla de azúcar normal y azúcar moreno en vez de sólo blanco.
 
 **Molde utilizado:** [molde loaf o de pan](../../moldes-y-utensilios.md)
 
