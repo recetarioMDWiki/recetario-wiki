@@ -85,7 +85,7 @@ Pasado el tiempo volvemos a extender una nueva capa de crema de avellana italian
 
 Repetimos una tercera vez y de nuevo, dejamos 30 minutos en la nevera.
 
-Mientras, derretimos las barritas de chocolate Kinder junto con el chocolate de repostería en el microondas, con cuidado de que no se queme, hasta que tengamos un chocolate líquido. Dejamos q enfríe a temperatura ambiente mientras tenemos la tarta en la nevera.
+Mientras, derretimos las barritas de chocolate Kinder junto con el chocolate de repostería en el microondas, con cuidado de que no se queme, hasta que tengamos un chocolate líquido. Dejamos que enfríe a temperatura ambiente mientras tenemos la tarta en la nevera.
 
 Una vez saquemos la tarta, vertemos el chocolate derretido por toda la parte superior de la tarta, dejando que caiga un poco por los laterales (podemos ayudarnos de una cuchara para repartirlo bien). De nuevo, dejar la tarta en la nevera para que el chocolate endurezca.
 
