@@ -2,8 +2,6 @@
 
 ## Dulce
 
-<!-- * [Azúcar moreno casero](../recetas/auxiliares/azucar-moreno-casero.md) -->
-
 * [Chocolate Buttercream Frosting - Cobertura de buttercream de chocolate](../recetas/auxiliares/chocolate-buttercream-frosting-cobertura-de-buttercream-de-chocolate.md)
 * [Chocolate Buttercream Frosting, con cacao en polvo](../recetas/auxiliares/chocolate-buttercream-frosting-con-cacao-en-polvo.md)
 * [Compota de manzana - Applesauce](../recetas/auxiliares/compota-de-manzana-applesauce.md)
