@@ -41,3 +41,21 @@ Extendemos sobre un papel de aluminio engrasado con mantequilla y puesto en la b
 Se mete en el horno a 180º C hasta que esté hecho.
 
 **Receta de:** Joaquín Martín
+
+**Ingredientes**
+
+- 4 huevos
+- 160 g de azúcar
+- 160 g de harina tamizada
+
+**Preparación**
+
+Encender el horno a 180 ºC, calor arriba y abajo. ENgrasar el molde, forrar la base y los laterales con papel y volver a pasar la mantequilla por encima. Reservar.
+
+Mezclamos los huevos con el azúcar y les damos un golpe de microondas (15-20 segundos). En el bol de batir batimos a máxima velocidad hasta que aumenten el tripe su volumen (al menos 10 min). Una vez bien montados, vamos añadiendo la harina poco a poco y mezclando con movimientos envolventes hasta integrarla por completo.
+
+Volcamos la crema resultante en el molde y horneamos (35-40 min, yo en 25 estaba listo) hasta que esté cocido y al pinchar con una varilla salga limpia. Retirar del horno, dejar enfriar 15 min y desmoldar sobre una rejilla hasta que termine de enfriarse.
+
+Para un molde redondo de 23 cm de diámetro
+
+**Receta de:** Kanela y Limón
