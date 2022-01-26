@@ -1,4 +1,5 @@
 - [azucar-invertido.md](auxiliares/azucar-invertido.md)
+- [azucar-moreno-casero.md](auxiliares/azucar-moreno-casero.md)
 - [bolonesa-o-ragu-de-ternera-de-jamie-oliver.md](auxiliares/bolonesa-o-ragu-de-ternera-de-jamie-oliver.md)
 - [buttercream-de-merengue-suizo.md](auxiliares/buttercream-de-merengue-suizo.md)
 - [caldos-base.md](auxiliares/caldos-base.md)
