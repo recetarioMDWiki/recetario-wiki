@@ -34,7 +34,7 @@ Obtendremos unas 8 tortitas de 8 cm.
 
 Si las tortitas se doran demasiado por debajo y en la superficie no han aparecido todavía las burbujas, bajar el fuego un poco.
 
-Si no podemos encontrar buttermilk podemos utilizar la siguiente sustitución: 1/2 cup de yogur natural sin azúcar + 1/2 cup de leche + 1/2 tablespoon de zumo de limón. Lo mezclamos todo y lo dejamos reposar 10 minutos. Luego lo utilizamos como se indica en la receta.
+Si no podemos encontrar buttermilk podemos utilizar la siguiente sustitución: 1/2 cup (125 g) de yogur natural sin azúcar + 1/2 cup (113 g) de leche + 1/2 tablespoon de zumo de limón. Lo mezclamos todo y lo dejamos reposar 10 minutos. Luego lo utilizamos como se indica en la receta.
 
 Si queremos mantener las tortitas calientes una vez hechas, podemos ponerlas en una bandeja y meterlos en el horno precalentado a 90 ºC y apagado. Sin taparlos ni apilarlos para que no se pongan húmedos.
 
