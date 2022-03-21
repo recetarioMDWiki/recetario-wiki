@@ -34,4 +34,4 @@ Podemos usar otros aromas como vainilla, naranja, frutos secos picados, chips de
 
 **Molde utilizado:** [bandeja para muffins](../../moldes-y-utensilios.md)
 
-**Receta de:** [Alma Obregón](https://www.youtube.com/watch?v=CJqOg2r6Z-A)(vídeo)
+**Receta de:** [Alma Obregón](https://www.youtube.com/watch?v=CJqOg2r6Z-A) (vídeo)
