@@ -34,6 +34,7 @@
 * [Carrot Cake Cupcakes - Cupcakes de Tarta de zanahoria](../recetas/dulce/carrot-cake-cupcakes-cupcakes-de-tarta-de-zanahoria.md)
 * [Cookies con trocitos de chocolate y avena](../recetas/dulce/cookies-con-trocitos-de-chocolate-y-avena.md)
 * [Coquitos o cocadas - Coconut Macaroons](../recetas/dulce/coquitos-o-cocadas-coconut-macaroons.md)
+* [Cupcakes de Kinder Bueneo](../recetas/dulce/cupcakes-kinder-bueno.md)
 
 - - -
 
@@ -74,6 +75,7 @@
 ## L
 
 * [Layer Cake de Kinder Bueno](../recetas/dulce/layer-cake-de-kinder-bueno.md)
+* [Lotus Banana Bread - Pan de plátano con Lotus](../recetas/dulce/lotus-banana-bread-pan-de-platano-y-lotus.md)
 
 - - -
 
