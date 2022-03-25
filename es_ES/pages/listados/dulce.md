@@ -75,7 +75,7 @@
 ## L
 
 * [Layer Cake de Kinder Bueno](../recetas/dulce/layer-cake-de-kinder-bueno.md)
-* [Lotus Banana Bread - Pan de plátano con Lotus](../recetas/dulce/lotus-banana-bread-pan-de-platano-y-lotus.md)
+* [Lotus Banana Bread - Pan de plátano y Lotus](../recetas/dulce/lotus-banana-bread-pan-de-platano-y-lotus.md)
 
 - - -
 
