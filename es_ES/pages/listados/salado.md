@@ -38,6 +38,7 @@
 * [Crema de calabaza](../recetas/salado/crema-de-calabaza.md)
 * [Crema de coliflor, brócoli y berenjena](../recetas/salado/crema-de-coliflor-brocoli-y-berenjena.md)
 * [Crema de guisantes](../recetas/salado/crema-de-guisantes.md)
+* [Crema de pimientos del piquillo y habichuelas blancas](../recetas/salado/crema-pimientos-piquillo-habichuelas-blancas.md)
 * [Crema de pimientos rojos asados](../recetas/salado/crema-de-pimientos-rojos-asados.md)
 * [Crema de puerros](../recetas/salado/crema-de-puerros.md)
 * [Croquetas](../recetas/salado/croquetas.md)
