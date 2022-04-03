@@ -36,11 +36,7 @@
 * [Couscous o cuscús con verduras](../recetas/salado/couscous-verduras.md)
 * [Crema de calabacín](../recetas/salado/crema-de-calabacin.md)
 * [Crema de calabaza](../recetas/salado/crema-de-calabaza.md)
-* [Crema de coliflor, brócoli y berenjena](../recetas/salado/crema-de-coliflor-brocoli-y-berenjena.md)
-* [Crema de guisantes](../recetas/salado/crema-de-guisantes.md)
 * [Crema de pimientos del piquillo y habichuelas blancas](../recetas/salado/crema-pimientos-piquillo-habichuelas-blancas.md)
-* [Crema de pimientos rojos asados](../recetas/salado/crema-de-pimientos-rojos-asados.md)
-* [Crema de puerros](../recetas/salado/crema-de-puerros.md)
 * [Croquetas](../recetas/salado/croquetas.md)
 
 - - -
@@ -137,7 +133,6 @@
 * [Pisto](../recetas/salado/pisto.md)
 * [Pollo al limón](../recetas/salado/pollo-al-limon.md)
 * [Pollo en salsa](../recetas/salado/pollo-en-salsa.md)
-* [Porrusalda con bacalao](../recetas/salado/porrusalda-con-bacalao.md)
 * [Potaje de garbanzos y acelgas](../recetas/salado/potaje-de-garbanzos-y-acelgas.md)
 * [Potaje de habichuelas blancas](../recetas/salado/potaje-de-habichuelas-blancas.md)
 * [Potaje de lentejas](../recetas/salado/potaje-de-lentejas.md)
@@ -164,7 +159,6 @@
 * [Sobrasada vegana](../recetas/salado/sobrasada-vegana.md)
 * [Sopa de arroz](../recetas/salado/sopa-de-arroz.md)
 * [Sopa de verduras](../recetas/salado/sopa-de-verduras.md)
-* [Sopa sedosa de coliflor](../recetas/salado/sopa-sedosa-de-coliflor.md)
 
 - - -
 
