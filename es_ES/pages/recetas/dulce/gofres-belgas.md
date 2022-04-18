@@ -4,14 +4,14 @@
 
 **Ingredientes**
 
-- 200 ml (3/4 cup + 1 tablespoon + 1 teaspoon) de leche entera, templada
+- 200 ml de leche entera, templada
 - 15 g de levadura fresca de panadería
-- 375 g (2 y 7/8 cups) de harina de fuerza
+- 375 g de harina de fuerza
 - 2 huevos (M), ligeramente batidos
-- 1 tablespoon (15 g) colmada de azúcar vainillado
-- 1/2 teaspoon de sal
-- 125 g (1/2 cup + 1 tablespoon) de mantequilla sin sal (más mantequilla extra para engrasar)
-- 150 g (3/4 cup) de azúcar perlado
+- 1 cucharada (tablespoon) de vainilla en pasta
+- 1/2 cucharadita (teaspoon) de sal
+- 125 g de mantequilla sin sal (más mantequilla extra para engrasar)
+- 150 g de azúcar perlado
 
 **Preparación**
 
