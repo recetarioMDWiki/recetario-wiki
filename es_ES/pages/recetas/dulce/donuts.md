@@ -29,7 +29,7 @@
 *Para el baño de chocolate*
 
 - 100 g de chocolate
-- 1 tablespoon de mantequilla o aceite
+- 1 cucharada (tablespoon) de mantequilla o aceite
 
 **Preparación**
 

@@ -10,8 +10,8 @@
 - 115 ml de nata líquida 35% m.g.
 - 120 g de harina
 - 35 g de cacao puro en polvo
-- 1 teaspoon de levadura química
-- 1/2 teaspoon de bicarbonato sódico
+- 1 cucharadita (teaspoon) de levadura química
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
 - Un par de cucharaditas hermosas de pasta de avellana italiana
 
 *Para la crema de mantequilla francesa con avellana*
@@ -19,7 +19,7 @@
 - 45 ml de agua
 - 135 g de azúcar blanco
 - 210 g de mantequilla a temperatura ambiente
-- 3 tablespoons de pasta de avellana italiana
+- 3 cucharadas (tablespoons) de pasta de avellana italiana
 
 **Preparación**
 

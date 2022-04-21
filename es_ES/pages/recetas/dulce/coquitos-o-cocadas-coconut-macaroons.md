@@ -5,9 +5,9 @@
 **Ingredientes**
 
 - 6 claras de huevo M/L
-- Zumo de limón
 - 500 g de coco rallado
 - 500 g de azúcar glas
+- Zumo de limón
 
 **Preparación**
 

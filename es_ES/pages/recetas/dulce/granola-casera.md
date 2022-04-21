@@ -5,11 +5,11 @@
 - 200 g de copos de avena gruesos
 - 40 g de almendras troceadas
 - 40 g de anacardos troceados
-- 1/4 teaspoon de canela molida
+- 1/4 cucharadita (teaspoon) de canela molida
 - 1/4 cup (60 ml) de sirope de arce
-- 3 tablespoons (45 ml) de aceite de girasol
-- 1/2 teaspoon de extracto natural de vainilla
-- 1/8 teaspoon de sal
+- 3 cucharadas (tablespoons o 45 ml) de aceite de girasol
+- 1/2 cucharadita (teaspoon) de extracto natural de vainilla
+- 1/8 cucharadita (teaspoon) de sal
 - 60 g de pasas 
 
 **Preparación**

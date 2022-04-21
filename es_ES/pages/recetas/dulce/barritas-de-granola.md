@@ -8,8 +8,8 @@
 - 1/4 cup (56 g) de mantequilla
 - 1/4 cup (60 ml) de miel
 - 1/3 cup (65 g) de azúcar moreno claro
-- 1/8 teaspoon de sal
-- 1/2 teaspoon de extracto natural de vainilla
+- 1/8 cucharadita (teaspoon) de sal
+- 1/2 cucharadita (teaspoon) de extracto natural de vainilla
 
 **Preparación**
 

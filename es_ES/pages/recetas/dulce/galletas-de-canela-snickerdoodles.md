@@ -2,18 +2,18 @@
 
 **Ingredientes**
 
-- 1 y 1/3 cup (170 g) de harina de trigo común
-- 1 teaspoon de levadura química
-- 1/8 teaspoon de sal
-- 1/4 cup (56 g) de mantequilla
-- 3/4 cup (150 g) de azúcar
-- 1/2 teaspoon de extracto natural de vainilla
+- 170 g (1 y 1/3 cup) de harina de trigo común
+- 1 cucharadita (teaspoon) de levadura química
+- 1/8 cucharadita (teaspoon) de sal
+- 56 g (1/4 cup) de mantequilla
+- 150 g (3/4 cup) de azúcar
+- 1/2 cucharadita (teaspoon) de extracto natural de vainilla
 - 1 huevo M
 
 *Para rebozar*
 
-- 2 tablespoons (25 g) de azúcar blanco
-- 2 teaspoons de canela en polvo
+- 2 cucharadas (tablespoons o 25 g) de azúcar blanco
+- 2 cucharaditas (teaspoons) de canela en polvo
 
 **Preparación**
 
@@ -37,6 +37,6 @@ Las podemos conservar en un bote hermético hasta 15 días.
 
 Para que nos sea más fácil formar las bolas, podemos humedecernos las manos con agua.
 
-Si queremos preparar la receta clásica de snickerdoodles hay que poner 113 g de mantequilla en total y sustituir la levadura química por 1 teaspoon de cremor tártaro y 1/2 teaspoon de bicarbonato sódico. Una vez esté hecha la masa, la tapamos y la dejamos en la nevera una o dos horas antes de formar las bolas.
+Si queremos preparar la receta clásica de snickerdoodles hay que poner 113 g de mantequilla en total y sustituir la levadura química por 1 cucharadita (teaspoon) de cremor tártaro y 1/2 cucharadita (teaspoon) de bicarbonato sódico. Una vez esté hecha la masa, la tapamos y la dejamos en la nevera una o dos horas antes de formar las bolas.
 
 **Receta de:** DeNIKAtessen

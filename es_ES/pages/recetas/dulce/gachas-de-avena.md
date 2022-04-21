@@ -3,11 +3,11 @@
 **Ingredientes**
 
 - 240 ml (1 cup) de leche
-- 1/8 teaspoon de sal
-- 1 tablespoon de sirope de arce
+- 1/8 cucharadita (teaspoon) de sal
+- 1 cucharada (tablespoon) de sirope de arce
 - 50 g (1/2 cup) de copos de avena tradicionales
 - 1/2 plátano, a rodajas
-- 1/4 teaspoon de canela molida
+- 1/4 cucharadita (teaspoon) de canela molida
 - 2 nueces, troceadas
 - Arándanos rojos secos
 - Leche fría extra (opcional)

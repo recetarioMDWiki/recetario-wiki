@@ -8,7 +8,7 @@
 - 1 huevo M/L
 - 2 plátanos maduros
 - 190 g de harina de trigo
-- 1/2 teaspoon de levadura química
+- 1/2 cucharadita (teaspoon) de levadura química
 - Un puñado de nueces
 
 **Preparación**

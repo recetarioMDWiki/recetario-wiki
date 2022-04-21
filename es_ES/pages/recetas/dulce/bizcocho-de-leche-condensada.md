@@ -8,7 +8,7 @@
 - 120 g mantequilla a temperatura ambiente
 - 45 g de azúcar
 - 250 g de leche condensada
-- 1 cucharada de extracto natural de vainilla
+- 1 cucharada (tablespoon) de extracto natural de vainilla
 - 2 huevos M/L
 
 **Preparación**

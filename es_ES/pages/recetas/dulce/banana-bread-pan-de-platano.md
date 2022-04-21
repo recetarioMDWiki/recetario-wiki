@@ -5,14 +5,14 @@
 - 1 cup (115 g) de nueces o nueces pecanas, tostadas y troceadas
 - 1 y 3/4 cups (230 g) de harina de trigo
 - 3/4 cup (150 g) de azúcar
-- 1 teaspoon de levadura química
-- 1/4 teaspoon de bicarbonato sódico
-- 1/4 teaspoon de sal
-- 1 teaspoon de canela
+- 1 cucharadita  (teaspoon) de levadura química
+- 1/4 cucharadita (teaspoon) de bicarbonato sódico
+- 1/4 cucharadita (teaspoon) de sal
+- 1 cucharadita (teaspoon) de canela
 - 3 plátanos grandes (~ 454 g) maduros machacados
 - 2 huevos M (100 g) ligeramente batidos
 - 1/2 cup (113 g) de mantequilla sin sal, derretida y fría
-- 1 teaspoon de extracto puro o pasta de vainilla
+- 1 cucharadita (teaspoon) de extracto puro o pasta de vainilla
 
 **Preparación**
 

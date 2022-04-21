@@ -2,14 +2,14 @@
 
 **Ingredientes**
 
-- 2 cups (260 g) de harina común
-- 1 teaspoon de bicarbonato sódico
-- 1 + 1/4 teaspoon de jengibre en polvo
-- 1 teaspoon de canela en polvo
-- 1/4 teaspoon de clavo en polvo
-- 1/4 teaspoon de sal
-- 1/2 cup (113 g) de mantequilla
-- 1 cup (200 g) de azúcar moreno oscuro
+- 260 g (2 cups) de harina común
+- 1 cucharadita (teaspoon) de bicarbonato sódico
+- 1 + 1/4 cucharaditas (teaspoons) de jengibre en polvo
+- 1 cucharadita (teaspoon) de canela en polvo
+- 1/4 cucharadita (teaspoon) de clavo en polvo
+- 1/4 cucharadita (teaspoon) de sal
+- 113 g (1/2 cup) de mantequilla
+- 200 g (1 cup) de azúcar moreno oscuro
 - 1 huevo M (50 g)
 - 1/4 cup (60 ml) de melaza
 

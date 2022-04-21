@@ -6,13 +6,13 @@
 - 235 g de harina de trigo integral
 - 55 g de harina de trigo blanca
 - 85 g de azúcar moreno claro
-- 3/4 teaspoon de levadura química
-- 1/2 teaspoon de bicarbonato sódico
-- 1/2 teaspoon de sal
-- 1/8 teaspoon de canela molida
-- 3 tablespoons de melaza o miel de caña
-- 3-4 tablespoons de leche
-- 1/2 teaspoon de extracto natural de vainilla
+- 3/4 cucharadita (teaspoon) de levadura química
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
+- 1/2 cucharadita (teaspoon) de sal
+- 1/8 cucharadita (teaspoon) de canela molida
+- 3 cucharadas (tablespoons) de melaza o miel de caña
+- 3-4 cucharadas (tablespoons) de leche
+- 1/2 cucharadita (teaspoon) de extracto natural de vainilla
 
 **Preparación**
 

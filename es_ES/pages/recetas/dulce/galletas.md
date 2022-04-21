@@ -3,11 +3,11 @@
 **Ingredientes**
 
 - 300 g de harina de repostería
-- 3 teaspoons de levadura química
+- 3 cucharaditas (teaspoons) de levadura química
 - 1 huevo L
 - 100 g de azúcar
 - 150 g de mantequilla
-- 1 teaspoon de extracto o pasta de vainilla
+- 1 cucharadita (teaspoon) de extracto o pasta de vainilla
 
 **Preparación**
 

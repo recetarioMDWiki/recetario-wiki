@@ -9,12 +9,12 @@
 - 150 g (3/4 cup) de azúcar blanco
 - 120 ml (1/2 cup) de aceite de oliva suave
 - 120 ml (1/2 cup) de buttermilk
-- 1 teaspoon (5 ml) de extracto puro de vainilla
+- 1 cucharadita (teaspoon) o 5 ml de extracto puro de vainilla
 - 260 g (2 cups) de harina de trigo floja
-- 1 teaspoon de canela molida
-- 1 teaspoon de levadura química
-- 1/2 teaspoon de bicarbonato sódico
-- 1/4 teaspoon de sal
+- 1 cucharadita (teaspoon) de canela molida
+- 1 cucharadita (teaspoon) de levadura química
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
+- 1/4 cucharadita (teaspoon) de sal
 - 60 g (1/2 cup) de nueces trituradas
 
 **Preparación**

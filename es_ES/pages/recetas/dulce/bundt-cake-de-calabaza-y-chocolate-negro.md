@@ -11,7 +11,7 @@
 - 3 huevos M
 - 130 g de harina de trigo
 - 60 g de cacao puro en polvo sin azúcar
-- 1 teaspoon de levadura química
+- 1 cucharadita (teaspoon) de levadura química
 
 *Para la masa de calabaza*
 
@@ -19,9 +19,9 @@
 - 215 g de azúcar blanco
 - 3 huevos M
 - 230 g de harina de trigo
-- 1 teaspoon de levadura química
+- 1 cucharadita (teaspoon) de levadura química
 - 200 g de [puré de calabaza](../auxiliares/pure-de-calabaza-casero.md)
-- *Opcional: 1/2 teaspoon de canela, una pizca de clavo y una pizca de nuez moscada*
+- *Opcional: 1/2 cucharadita (teaspoon) de canela, una pizca de clavo y una pizca de nuez moscada*
 
 **Preparación**
 

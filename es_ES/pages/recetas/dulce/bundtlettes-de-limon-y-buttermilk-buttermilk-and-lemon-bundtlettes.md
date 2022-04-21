@@ -5,20 +5,20 @@
 **Ingredientes**
 
 - 180 g de azúcar
-- 2 tablespoons de ralladura de limón
-- 4 tablespoons de zumo de limón
+- 2 cucharadas (tablespoons) de ralladura de limón
+- 4 cucharadas (tablespoons) de zumo de limón
 - 115 g de mantequilla sin sal a temperatura ambiente
 - 2 huevos M-L
 - 240 g de harina de trigo
-- 1 teaspoon (5 g) de levadura química
-- 1/2 teaspoon (2,5 g) de bicarbonato sódico
+- 1 cucharadita (teaspoon) o 5 g de levadura química
+- 1/2 cucharadita (teaspoon) o 2,5 g de bicarbonato sódico
 - 240 ml de buttermilk
 
 *Glaseado (opcional)*
 
 - 100 g de azúcar glas
-- 1 teaspoon de buttermilk
-- 1 teaspoon de zumo de limón
+- 1 cucharadita (teaspoon) de buttermilk
+- 1 cucharadita (teaspoon) de zumo de limón
 
 **Preparación**
 

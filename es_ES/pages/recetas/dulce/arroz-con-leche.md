@@ -7,7 +7,7 @@
 - 1.5 l de leche entera
 - 150 g de arroz de grano redondo
 - 100-150 g de azúcar
-- 1/2 teaspoon de sal
+- 1/2 cucharadita (teaspoon) de sal
 - 40 g de mantequilla sin sal
 - Una rama de canela
 - La piel de un limón (sólo la parte amarilla)

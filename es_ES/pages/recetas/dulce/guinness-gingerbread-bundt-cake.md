@@ -3,16 +3,16 @@
 **Ingredientes**
 
 - 325 g de harina de trigo
-- 3 x 1/4 o 1/2+1/4 teaspoon de levadura química
-- 3 x 1/4 o 1/2+1/4 teaspoon de sal
-- 1+1/2 tablespoons de jengibre molido
-- 1/4+1/8 teaspoon de canela molida
-- 1/8 teaspoon clavo molido
+- 3 x 1/4 cucharadita (teaspoon) de levadura química
+- 3 x 1/4 cucharadita (teaspoon) de sal
+- 1+1/2 cucharadas (tablespoons) de jengibre molido
+- 1/4+1/8 cucharadita (teaspoon) de canela molida
+- 1/8 cucharadita (teaspoon) clavo molido
 - 270 ml de cerveza negra Guinness
-- 3 x 1/4 o 1/2+1/4 teaspoon de bicarbonato sódico
+- 3 x 1/4 cucharaditas (teaspoons) de bicarbonato sódico
 - 225 g de azúcar moreno claro
 - 75 g de azúcar blanco
-- 1 cup (240 ml) melaza o miel de caña
+- 240 ml (1 cup) melaza o miel de caña
 - 3 huevos M (150 g)
 - 120 ml de aceite de girasol
 

@@ -5,12 +5,12 @@
 - 4 huevos L
 - 1 bote pequeño (370 g) de leche condensada
 - 500 ml de leche
-- 2 o 3 tablespoons de azúcar (opcional)
+- 2 o 3 cucharadas (tablespoons) de azúcar (opcional)
 
 *Para el caramelo*
 
-- 4 o 5 tablespoons de azúcar
-- 3 tablespoons de agua
+- 4 o 5 cucharadas (tablespoons) de azúcar
+- 3 cucharadas (tablespoons) de agua
 
 **Preparación**
 

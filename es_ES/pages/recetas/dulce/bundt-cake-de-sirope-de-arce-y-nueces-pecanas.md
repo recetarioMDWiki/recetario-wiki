@@ -3,14 +3,14 @@
 **Ingredientes**
 
 - 280 g de harina de trigo
-- 2 teaspoons de levadura química
-- 1/2 teaspoon de bicarbonato sódico
-- 1/2 teaspoon de sal
+- 2 cucharaditas (teaspoons) de levadura química
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
+- 1/2 cucharadita (teaspoon) de sal
 - 200 g de mantequilla sin sal, a temperatura ambiente
 - 100 g de azúcar moreno oscuro
 - 2 huevos M/L
 - 120 ml (1/2 cup) de sirope de arce
-- 2 teaspoons de extracto puro de vainilla
+- 2 cucharaditas (teaspoons) de extracto puro de vainilla
 - 240 ml (1 cup) de sour cream o yogur griego natural
 - 140 g de nueces pecanas tostadas troceadas
 

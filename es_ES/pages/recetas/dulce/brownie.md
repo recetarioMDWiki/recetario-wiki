@@ -5,14 +5,14 @@
 - 75 g de chocolate negro (70% cacao)
 - 75 g de chocolate negro (50% cacao)
 - 115 g de mantequilla sin sal
-- 15 g (2 tablespoons) de cacao puro en polvo
+- 15 g (2 cucharadas o tablespoons) de cacao puro en polvo
 - 200 g (1 cup) de azúcar blanco
-- 1/2 teaspoon de café soluble (opcional)
+- 1/2 cucharadita (teaspoon) de café soluble (opcional)
 - 3 huevos (M)
-- 1 teaspoon de extracto puro de vainilla
+- 1 cucharadita (teaspoon) de extracto puro de vainilla
 - 85 g (2/3 cup) de harina de trigo floja
-- 1/2 teaspoon de sal
-- 60 g (½ cup) de nueces troceadas
+- 1/2 cucharadita (teaspoon) de sal
+- 60 g (1/2 cup) de nueces troceadas
 
 **Preparación**
 
@@ -38,7 +38,7 @@ Retiramos del horno y dejamos enfriar dentro del molde sobre una rejilla. Cuando
 
 Si lo queremos más intenso podemos utilizar solo chocolate al 70% de cacao, pondríamos 150 g.
 
-Podemos añadir 1/4 teaspoon de levadura química si nos gusta con una textura más esponjosa, como de bizcocho. Lo añadiríamos junto con la harina.
+Podemos añadir 1/4 cucharadita (teaspoon) de levadura química si nos gusta con una textura más esponjosa, como de bizcocho. Lo añadiríamos junto con la harina.
 
 El café soluble es opcional pero potencia el sabor del chocolate.
 

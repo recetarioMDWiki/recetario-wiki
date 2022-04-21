@@ -3,11 +3,11 @@
 **Ingredientes**
 
 - 525 g de harina de repostería
-- 1 teaspoon (4 g) de levadura química
+- 1 cucharadita (teaspoon o 4 g) de levadura química
 - 340 g de mantequilla a temperatura ambiente
 - 240 g de azúcar
-- 2 tablespoons (20 g) de leche
-- 1 tablespoon (10 g) de extracto natural de vainilla
+- 2 cucharadas (tablespoons o 20 g) de leche
+- 1 cucharada (tablespoon o 10 g) de extracto natural de vainilla
 - 1 huevo L
 
 **Preparación**

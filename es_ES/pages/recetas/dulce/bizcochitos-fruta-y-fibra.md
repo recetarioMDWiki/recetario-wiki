@@ -4,25 +4,25 @@
 
 - 40 g (1/2 cup) de salvado de trigo natural
 - 30 g (1/3 cup) de copos de avena finos
-- 20 g (2 tablespoon) de pasas sultanas
+- 20 g (2 cucharadas o tablespoons) de pasas sultanas
 - 56-65 g (1/4 cup) de compota de manzana sin endulzar
-- 2 tablespoon (28 g) de yogur natural
-- 2 tablespoon (30 ml) de leche
-- 1 y 1/2 tablespoon (22,5 ml) de aceite de girasol
-- 1/2 tablespoon (10 g) de melaza o miel de caña
-- 3 tablespoon (38 g) de azúcar moreno oscuro
-- 1 + 2 tablespoon (45 ml) de agua
-- 1 teaspoon de pasta de vainilla
+- 2 cucharadas (tablespoons) o 28 g de yogur natural
+- 2 cucharadas (tablespoons) o 30 ml de leche
+- 1 y 1/2 cucharadas (tablespoons) o 22,5 ml de aceite de girasol
+- 1/2 cucharada (tablespoon) o 10 g de melaza o miel de caña
+- 3 cucharadas (tablespoons) o 38 g de azúcar moreno oscuro
+- 1 + 2 cucharadas (tablespoons) o 45 ml de agua
+- 1 cucharadita (teaspoon) de pasta de vainilla
 - 45 g (1/3 cup) de harina de trigo común
-- 1/2 teaspoon de canela molida
-- 1/4 teaspoon de bicarbonato sódico
-- 1/4 teaspoon de levadura química
+- 1/2 cucharadita (teaspoon) de canela molida
+- 1/4 cucharadita (teaspoon) de bicarbonato sódico
+- 1/4 cucharadita (teaspoon) de levadura química
 - Una pizca de sal
 
 *Decoración*
 
-- 1 tablespoon de copos de avena gruesos
-- 1 teaspoon de melaza diluida en agua
+- 1 cucharada (tablespoon) de copos de avena gruesos
+- 1 cucharadita (teaspoon) de melaza diluida en agua
 
 **Preparación**
 
@@ -30,11 +30,11 @@ Precalentamos el horno a 175 ºC y colocamos una rejilla en el centro del horno.
 
 En un bol ponemos el salvado de trigo, los copos de avena y las pasas, que podemos trocearlas. Si tenemos copos de avena tradicionales, los gruesos, los troceamos un poco con un cuchillo sobre una tabla de madera.
 
-En otro bol mezclamos la compota de manzana, el yogur, la leche, el aceite, la melaza, el azúcar, la vainilla y 1 tablespoon (15 ml) del agua. Añadimos esta mezcla al bol anterior, mezclamos bien y dejamos reposar la mezcla 15-20 minutos para que el salvado se hidrate.
+En otro bol mezclamos la compota de manzana, el yogur, la leche, el aceite, la melaza, el azúcar, la vainilla y 1 cucharada (tablespoon o 15 ml) del agua. Añadimos esta mezcla al bol anterior, mezclamos bien y dejamos reposar la mezcla 15-20 minutos para que el salvado se hidrate.
 
 En un tercer bol, tamizamos la harina, la canela, el bicarbonato, la levadura y la sal. Reservamos.
 
-Pasado el tiempo de reposo, añadimos las 2 tablespoon (30 ml) restantes de agua a la mezcla de salvado e incorporamos.
+Pasado el tiempo de reposo, añadimos las 2 cucharadas (tablespoons o 30 ml) restantes de agua a la mezcla de salvado e incorporamos.
 
 Con una espátula añadimos la mezcla del bol de ingredientes húmedos al bol de ingredientes secos, y mezclamos solo hasta que los ingredientes se hayan combinado y quede una masa espesa. No hay que mezclar en exceso.
 

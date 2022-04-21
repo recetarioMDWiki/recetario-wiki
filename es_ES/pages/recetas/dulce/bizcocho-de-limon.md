@@ -4,14 +4,14 @@
 
 **Ingredientes**
 
-- Ralladura de un limón
 - 3 vasos (375 g aprox.) de harina de trigo
 - 1 sobre (16 g) de levadura química
 - 3 huevos L
-- Zumo de limón
 - 2 vasos (410 g aprox.) de azúcar
 - 1 vaso (250 ml) de leche
 - 1 vaso (250 ml) de aceite de girasol o aceite de oliva suave
+- Zumo de limón
+- Ralladura de un limón
 
 **Preparación**
 

@@ -3,8 +3,8 @@
 **Ingredientes**
 
 - 140 g de harina de trigo
-- 1 teaspoon de canela molida
-- 1 teaspoon de bicarbonato sódico
+- 1 cucharadita (teaspoon) de canela molida
+- 1 cucharadita (teaspoon) de bicarbonato sódico
 - 150 g de zanahoria
 - 140 g de manzana
 - 2 huevos L

@@ -7,12 +7,12 @@
 - 115 g de mantequilla a temperatura ambiente
 - 100 g de azúcar
 - 110 g de azúcar moreno oscuro
-- 1/2 teaspoon de extracto de vainilla
+- 1/2 cucharadita (teaspoon) de extracto de vainilla
 - 1 huevo L
 - 150 g de harina de trigo
-- 1/4 teaspoon de sal
-- 1/2 teaspoon de bicarbonato sódico
-- 1/2 teaspoon de levadura química
+- 1/4 cucharadita (teaspoon) de sal
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
+- 1/2 cucharadita (teaspoon) de levadura química
 - 110 g de avena pulverizada
 - 125-170 g de gotas de chocolate, a gusto
 

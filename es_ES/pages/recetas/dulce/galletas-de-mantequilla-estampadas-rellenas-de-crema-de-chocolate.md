@@ -13,7 +13,7 @@
 
 *Para el relleno*
 
-- 100 ml de nata líquida 35% mg
+- 100 ml de nata líquida 35% m.g.
 - 200 g de chocolate
 
 **Preparación**

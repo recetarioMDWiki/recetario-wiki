@@ -5,7 +5,7 @@
 - 8 claras de huevo M
 - 170 g de azúcar
 - 285 g de harina de trigo
-- 2 teaspoons + 1/4 teaspoons de levadura química
+- 2 + 1/4 cucharaditas (teaspoons) de levadura química
 - 170 g de nata para montar (35% M.G.)
 - 97 g de mantequilla sin sal, derretida
 - Ralladura de 1 o 2 limones

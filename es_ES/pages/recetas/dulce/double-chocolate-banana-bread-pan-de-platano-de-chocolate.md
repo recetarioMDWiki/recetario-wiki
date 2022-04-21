@@ -6,10 +6,10 @@
 - 115 g (1/2 cup) de mantequilla derretida
 - 145 g (3/4 cup) de azúcar moreno
 - 1 huevo M
-- 1 teaspoon (5 ml) de extracto puro de vainilla
-- 1 teaspoon de bicarbonato sódico
-- 1/4 teaspoon de sal
-- 1/2 teaspoon de canela molida (opcional)
+- 1 cucharadita (teaspoon o 5 ml) de extracto puro de vainilla
+- 1 cucharadita (teaspoon) de bicarbonato sódico
+- 1/4 cucharadita (teaspoon) de sal
+- 1/2 cucharadita (teaspoon) de canela molida (opcional)
 - 125 g (1 cup) de harina de trigo
 - 1/2 cup de cacao puro en polvo con procesado holandés (Dutch-process cocoa powder, por ejemplo, marca Valor)
 - 170 g (1 cup) de trocitos de chocolate negro

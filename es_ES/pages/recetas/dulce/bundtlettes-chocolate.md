@@ -7,10 +7,10 @@
 - 180 g de mantequilla
 - 250 g de azúcar extrafino
 - 3 huevos L
-- 1 teaspoon de café soluble
+- 1 cucharadita (teaspoon) de café soluble
 - 140 g de harina de trigo
 - 50 g de cacao en polvo con proceso holandés (dutch process), como el de la marca Valor
-- 1/4 teaspoon de levadura química
+- 1/4 cucharadita (teaspoon) de levadura química
 - 125 ml de buttermilk
 
 **Preparación**
@@ -31,7 +31,7 @@ Sacamos del horno y dejamos reposar la bandeja sobre una rejilla unos 10 minutos
 
 El azúcar extrafino no es azúcar glas, es un azúcar que está entre el blanco normal y el glas, en cuanto al tamaño de los cristales de azúcar. Azucarera es una marca que lo comercializa.
 
-Si no encontramos buttermilk podemos prepararlo vertiendo el zumo de medio limón (o 1 tablespoon de vinagre) sobre 125 ml de leche entera tibia. Sin remover, dejamos reposar unos 15-20 minutos, hasta que se corte y espese. Tendrá aspecto de leche cortada o yogur muy líquido, pero ésta es la textura que debe tener. Revolvemos cuando vayamos a usar, no es necesario colar.
+Si no encontramos buttermilk podemos prepararlo vertiendo el zumo de medio limón (o 1 cucharada o tablespoon de vinagre) sobre 125 ml de leche entera tibia. Sin remover, dejamos reposar unos 15-20 minutos, hasta que se corte y espese. Tendrá aspecto de leche cortada o yogur muy líquido, pero ésta es la textura que debe tener. Revolvemos cuando vayamos a usar, no es necesario colar.
 
 También podemos utilizar un molde bundt de 6 cups o un molde loaf de unos 21 cm de largo.
 

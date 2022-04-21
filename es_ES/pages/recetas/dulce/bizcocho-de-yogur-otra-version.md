@@ -10,7 +10,7 @@
 - 2 tarritos de azúcar
 - 3/4 de un tarrito de aceite suave (de girasol o de oliva)
 - Un sobre (16 g) de levadura química
-- 1 teaspoon de pasta de vainilla y la ralladura de un limón
+- 1 cucharadita (teaspoon) de pasta de vainilla y la ralladura de un limón
 - Una pizca de sal
 
 *Para enharinar el molde*

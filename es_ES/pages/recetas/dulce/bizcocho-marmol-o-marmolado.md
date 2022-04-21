@@ -5,13 +5,13 @@
 **Ingredientes**
 
 - 250 g de harina de trigo
-- 2 teaspoons de levadura química
+- 2 cucharaditas (teaspoons) de levadura química
 - 1 pellizco de sal
 - 150 g de mantequilla sin sal a temperatura ambiente
 - 200 g de azúcar
 - 4 huevos M (200 g)
 - 50 g de leche entera
-- 1 teaspoon de extracto o pasta de vainilla
+- 1 cucharadita (teaspoon) de extracto o pasta de vainilla
 - 15 g de cacao puro en polvo 
 
 **Preparación**
