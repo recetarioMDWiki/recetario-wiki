@@ -159,6 +159,7 @@
 * [Sobrasada vegana](../recetas/salado/sobrasada-vegana.md)
 * [Sopa de arroz](../recetas/salado/sopa-de-arroz.md)
 * [Sopa de verduras](../recetas/salado/sopa-de-verduras.md)
+* [Strudel de setas con masa filo](../recetas/salado/strudel-setas-masa-filo.md)
 
 - - -
 
