@@ -1,4 +1,4 @@
-## Muffins con trozos de chocolate
+## Muffins de yogur griego con trozos de chocolate
 
 ![Muffins con trozos de chocolate](../../uploads/images/muffins-con-trozos-de-chocolate.jpg "Muffins con trozos de chocolate")
 

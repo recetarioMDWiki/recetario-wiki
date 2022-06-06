@@ -97,7 +97,6 @@
 * [Mousse de fresas](../recetas/dulce/mousse-de-fresas.md)
 * [Mousse de turrón blando](../recetas/dulce/mousse-de-turron-blando.md)
 * [Muesli casero](../recetas/dulce/muesli-casero.md)
-* [Muffins con trozos de chocolate](../recetas/dulce/muffins-con-trozos-de-chocolate.md)
 * [Muffins de arándanos azules](../recetas/dulce/muffins-de-arandanos-azules.md)
 * [Muffins de calabaza y manzana](../recetas/dulce/muffins-de-calabaza-y-manzana.md)
 * [Muffins de canela y nuez moscada](../recetas/dulce/muffins-canela-nuez-moscada.md)
@@ -107,6 +106,7 @@
 * [Muffins de plátano y avena](../recetas/dulce/muffins-de-platano-y-avena.md)
 * [Muffins de plátano y salvado de avena](../recetas/dulce/muffins-de-platano-y-salvado-de-avena.md)
 * [Muffins de salvado de trigo y copos de avena](../recetas/dulce/muffins-de-salvado-de-trigo-y-copos-de-avena.md)
+* [Muffins de yogur griego con trozos de chocolate](../recetas/dulce/muffins-de-yogur-griego-con-trozos-de-chocolate.md)
 * [Muffins integrales bajos en grasa](../recetas/dulce/muffins-integrales-bajos-en-grasa.md)
 
 - - - 
