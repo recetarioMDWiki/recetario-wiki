@@ -7,7 +7,7 @@
 - Una rama de canela
 - 4 yemas de huevo
 - 75 g de azúcar
-- 2 tablespoons de harina de maíz
+- 2 cucharadas (tablespoons) de harina de maíz
 
 **Preparación**
 

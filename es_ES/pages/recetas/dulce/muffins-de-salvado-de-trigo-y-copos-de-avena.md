@@ -3,20 +3,20 @@
 **Ingredientes**
 
 - 1/2 cup (40 g) de salvado de trigo natural
-- 2 y 1/2 tablespoons (40 ml) de agua o zumo natural de naranja
-- 1/3 cup (35 g) de copos de avena (gruesos o finos)
+- 2 y 1/2 cucharadas (tablespoons o 40 ml) de agua o zumo natural de naranja
+- 35 g (1/3 cup) de copos de avena (gruesos o finos)
 - 1/2 cup (120 ml) de yogur natural
 - 1/4 cup (60 ml) de leche
-- 3 tablespoons (45 ml) de aceite de girasol
-- 1 tablespoon (15 ml) de melaza o miel de caña
+- 3 cucharadas (tablespoons o 45 ml) de aceite de girasol
+- 1 cucharada (tablespoon o 15 ml) de melaza o miel de caña
 - 1 huevo M (50 g)
-- 6 tablespoons (75 g) de azúcar moreno claro o panela
+- 6 cucharadas (tablespoons o 5 g) de azúcar moreno claro o panela
 - 30 g de pasas sultanas
 - 1 cup (130 g) de harina de trigo común
-- 1/2 teaspoon de canela molida
-- 1/2 teaspoon de bicarbonato sódico
-- 1/2 teaspoon de levadura química
-- 1/8 teaspoon de sal
+- 1/2 cucharadita (teaspoon) de canela molida
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
+- 1/2 cucharadita (teaspoon) de levadura química
+- 1/8 cucharadita (teaspoon) de sal
 
 **Preparación**
 

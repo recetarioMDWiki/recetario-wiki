@@ -5,12 +5,12 @@
 **Ingredientes**
 
 - 3/4 cup (97 g) de harina de trigo
-- 1/2 teaspoon de bicarbonato sódico
-- 1/8 teaspoon de sal
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
+- 1/8 cucharadita (teaspoon) de sal
 - 1/4 cup (56 g) de mantequilla
 - 1/2 cup (100 g) de azúcar blanco
 - 1 huevo M (50 g)
-- 1/2 teaspoon de extracto natural de vainilla
+- 1/2 cucharadita (teaspoon) de extracto natural de vainilla
 - 1/4 cup (56 g) de plátano maduro machacado
 - 1/4 cup (56 g) de yogur griego
 - 50 g de chips de chocolate (opcional)
@@ -33,7 +33,7 @@ Horneamos a 175º C durante 25-30 minutos o hasta que al insertar un palillo en 
 
 **Notas**
 
-Si os gusta la combinación de canela y plátano podéis añadir 1/2 teaspoon de canela a la masa. Tamizarla junto a la harina.
+Si os gusta la combinación de canela y plátano podéis añadir 1/2 cucharadita (teaspoon) de canela a la masa. Tamizarla junto a la harina.
 
 Los chips de chocolate son opcionales, los podemos omitir o sustituir por nueces picadas.
 

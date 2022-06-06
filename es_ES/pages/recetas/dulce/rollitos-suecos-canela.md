@@ -9,14 +9,14 @@
 - 75 g de mantequilla a temperatura ambiente
 - 70 g de azúcar blanco
 - 25 g de levadura fresca
-- 2 tablespoons de cardamomo molido
+- 2 cucharadas (tablespoons) de cardamomo molido
 - Una pizca de sal
 
 *Para el relleno*
 
 - 75 g de mantequilla a temperatura ambiente
 - 45 g de azúcar blanco
-- 1 tablespoon de canela molida
+- 1 cucharada (tablespoon) de canela molida
 
 *Para la cobertura*
 

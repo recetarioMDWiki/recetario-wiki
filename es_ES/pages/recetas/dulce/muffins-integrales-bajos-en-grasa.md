@@ -6,19 +6,19 @@
 - 60 g de harina de trigo integral
 - 40 g de salvado de trigo
 - 60 g de azúcar moreno claro
-- 2 teaspoons de levadura química
-- 1 teaspoon de bicarbonato sódico
-- 1/4 teaspoon de canela molida
-- 1 teaspoon de ralladura de naranja
-- 1/4 teaspoon de sal
+- 2 cucharaditas (teaspoons) de levadura química
+- 1 cucharadita (teaspoon) de bicarbonato sódico
+- 1/4 cucharadita (teaspoon) de canela molida
+- 1 cucharadita (teaspoon) de ralladura de naranja
+- 1/4 cucharadita (teaspoon) de sal
 - 20 g de pasas
 - 20 g de arándanos rojos secos
 - 1 clara (30 g) de huevo M
 - 2 yogures (250 g) naturales desnatados
-- 2 tablespoons de zumo natural de naranja
-- 2 tablespoons de aceite de girasol
-- 4 tablespoons de miel
-- 1 teaspoon de extracto natural de vainilla
+- 2 cucharadas (tablespoons) de zumo natural de naranja
+- 2 cucharadas (tablespoons) de aceite de girasol
+- 4 cucharadas (tablespoons) de miel
+- 1 cucharadita (teaspoon) de extracto natural de vainilla
 
 **Preparación**
 

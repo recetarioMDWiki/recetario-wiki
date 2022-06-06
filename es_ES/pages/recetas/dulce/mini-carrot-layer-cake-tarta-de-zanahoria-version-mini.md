@@ -4,17 +4,17 @@
 
 - 100 g (3/4 cup) de zanahoria rallada
 - 75 g (1/3 y 1/4 cup) de harina de trigo normal
-- 1/4 y 1/8 teaspoon de levadura química
-- 1/4 teaspoon de bicarbonato sódico
-- 1/4 teaspoon de sal
-- 1/4 teaspoon de canela molida
-- 1/8 teaspoon de nuez moscada molida
+- 1/4 y 1/8 cucharaditas (teaspoons) de levadura química
+- 1/4 cucharadita (teaspoon) de bicarbonato sódico
+- 1/4 cucharadita (teaspoon) de sal
+- 1/4 cucharadita (teaspoon) de canela molida
+- 1/8 cucharadita (teaspoon) de nuez moscada molida
 - Una pizca de clavo molido
 - 1 huevo M (50 g)
-- 6 tablespoons (75 g) de azúcar blanco
-- 2 tablespoons (25 g) de azúcar moreno claro
-- 1/2 teaspoon de extracto natural de vainilla
-- 5 tablespoons (75 ml) de aceite de girasol
+- 6 cucharadas (tablespoons o 75 g) de azúcar blanco
+- 2 cucharadas (tablespoons o 25 g) de azúcar moreno claro
+- 1/2 cucharadita (teaspoon) de extracto natural de vainilla
+- 5 cucharadas (tablespoons o 75 ml) de aceite de girasol
 - 30 g de pasas sultanas (opcional)
 - [Cream Cheese Frosting](../auxiliares/cream-cheese-frosting-cobertura-de-crema-de-queso.md)
 

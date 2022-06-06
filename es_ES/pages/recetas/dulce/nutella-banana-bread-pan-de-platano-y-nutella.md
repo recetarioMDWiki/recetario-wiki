@@ -3,14 +3,14 @@
 **Ingredientes**
 
 - 3 plátanos maduros (unos 295 g)
-- 85 g (6 tablespoons) de mantequilla derretida
+- 85 g de mantequilla derretida
 - 2 huevos, a temperatura ambiente
 - 170 g de yogur griego
-- 2 teaspoons de pasta o extracto natural de vainilla
+- 2 cucharaditas (teaspoons) de pasta o extracto natural de vainilla
 - 260 g (2 cups) de harina de trigo
-- 1 teaspoon de bicarbonato sódico
+- 1 cucharadita (teaspoon) de bicarbonato sódico
 - 160 g (3/4 cup) de azúcar
-- 1 teaspoon de sal
+- 1 cucharadita (teaspoon) de sal
 - 160 g (2/3 cup) de Nutella
 
 **Preparación**

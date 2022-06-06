@@ -8,18 +8,18 @@
 
 - 32 g (1/4 cup) de harina de trigo normal
 - 25 g (1/4 cup) de copos de avena rápidos
-- 2 tablespoons (25 g) de azúcar blanco
-- 2 tablespoons (25 g) de azúcar moreno claro
-- 1/8 teaspoon de sal
-- 3 tablespoons (42 g) de mantequilla fría
+- 2 cucharadas (tablespoons o 25 g) de azúcar blanco
+- 2 cucharadas (tablespoons o 25 g) de azúcar moreno claro
+- 1/8 cucharadita (teaspoon) de sal
+- 3 cucharadas (tablespoons o 42 g) de mantequilla fría
 - 20 g (1/4 cup) de almendras fileteadas
 
 *Para el relleno*
 
 - 400 g de cerezas deshuesadas
-- 2 tablespoons (25 g) de azúcar vainillado
-- 2 teaspoons de harina fina de maíz
-- 2 teaspoons de licor de almendras (opcional)
+- 2 cucharadas (tablespoons o 25 g) de azúcar vainillado
+- 2 cucharadita (teaspoons) de harina fina de maíz
+- 2 cucharadita (teaspoons) de licor de almendras (opcional)
 
 **Preparación**
 
@@ -39,9 +39,9 @@ Con estas cantidades podemos hacer 4 unidades.
 
 Si no tenéis copos de avena rápidos, se pueden utilizar los tradicionales pero primero los pasaremos por el cuchillo para hacerlos más pequeños.
 
-Se puede sustituir el licor de almendra por extracto natural de almendra (pondremos entre 1/4 y 1/2 teaspoon) o extracto natural de vainilla (pondremos 1/2 teaspoon).
+Se puede sustituir el licor de almendra por extracto natural de almendra (pondremos entre 1/4 y 1/2 cucharadita o teaspoon) o extracto natural de vainilla (pondremos 1/2 cucharadita o teaspoon).
 
-Si las cerezas no son muy dulces podemos añadir 1 o 2 tablespoon de azúcar más para compensarlo.
+Si las cerezas no son muy dulces podemos añadir 1 o 2 cucharadas (tablespoons) de azúcar más para compensarlo.
 
 Cuando pongamos el relleno en los moldes hay que compactarlo bien ya que al hornear se encogerá.
 

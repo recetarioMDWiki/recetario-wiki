@@ -3,19 +3,19 @@
 **Ingredientes**
 
 - 250 ml de leche desnatada
-- 1 teaspoon de zumo de limón
+- 1 cucharadita (teaspoon) de zumo de limón
 - 225 g de fresas
 - 80 g de azúcar
 - 160 g de harina de trigo
 - 60 g de harina de trigo integral
-- 2 teaspoons de levadura química
-- 1/2 teaspoon de bicarbonato sódico
-- 1/2 teaspoon de sal
-- 1/2 teaspoon de canela molida
+- 2 cucharaditas (teaspoons) de levadura química
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
+- 1/2 cucharadita (teaspoon) de sal
+- 1/2 cucharadita (teaspoon) de canela molida
 - 1 huevo L
 - 60 ml de aceite de oliva suave 
-- 1 teaspoon de extracto puro de vainilla
-- 1 tablespoon de semillas de amapola
+- 1 cucharadita (teaspoon) de extracto puro de vainilla
+- 1 cucharada (tablespoon) de semillas de amapola
 
 **Preparación**
 

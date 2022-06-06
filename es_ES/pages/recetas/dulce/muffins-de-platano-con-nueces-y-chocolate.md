@@ -7,11 +7,11 @@
 - 2 plátanos grandes bien maduros (unos 250 g, ya pelado)
 - 115 ml de aceite de oliva suave
 - 2 huevos (unos 100-110 g, sin cáscara)
-- 1 teaspoon de extracto o pasta natural de vainilla
+- 1 cucharadita (teaspoon) de extracto o pasta natural de vainilla
 - 270 g de harina de trigo
-- 2 teaspoons de levadura química
+- 2 cucharaditas (teaspoons) de levadura química
 - 160 g de azúcar moreno claro u oscuro
-- 1/2 teaspoon de sal
+- 1/2 cucharadita (teaspoon) de sal
 - 40 g de nueces peladas y troceadas
 - 80 g de chocolate (negro, con leche, blanco...) en trozos o gotas
 

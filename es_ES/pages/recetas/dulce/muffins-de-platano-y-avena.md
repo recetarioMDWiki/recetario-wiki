@@ -5,7 +5,7 @@
 - 60 g de copos de avena, rápidos o normales
 - 180 g de harina integral
 - 75 g de azúcar moreno
-- 1 teaspoon de bicarbonato sódico
+- 1 cucharadita (teaspoon) de bicarbonato sódico
 - 250 g de plátano
 - 80 ml de aceite de oliva suave
 - 2 huevos M

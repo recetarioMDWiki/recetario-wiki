@@ -10,13 +10,13 @@
 - 280 g de azúcar
 - 220 g de harina de trigo
 - 60 g de cacao puro en polvo sin azúcar
-- 1 teaspoon de levadura química
+- 1 cucharadita (teaspoon) de levadura química
 - 2 huevos M/L
-- 190 ml de buttermilk que podemos preparar con 180 ml leche entera + 1 tablespoon de vinagre
-- 1 teaspoon de pasta pura de vainilla
+- 190 ml de buttermilk que podemos preparar con 180 ml leche entera + 1 cucharada (tablespoon) de vinagre
+- 1 cucharadita (teaspoon) de pasta pura de vainilla
 - 190 ml agua tibia
-- 1 y 1/2 teaspoons de bicarbonato sódico
-- 1/2 teaspoon de sal
+- 1 y 1/2 cucharaditas (teaspoons) de bicarbonato sódico
+- 1/2 cucharadita (teaspoon) de sal
 
 *Para el Buttercream de Kinder Chocolate para el relleno*
 
@@ -30,7 +30,7 @@
 - 42 ml agua
 - 130 g azúcar
 - 210 g mantequilla a temperatura ambiente, pomada
-- 1 y 1/2 tablespoons de pasta de avellana italiana
+- 1 y 1/2 cucharadas (tablespoons) de pasta de avellana italiana
 
 *Para el montaje y decoración*
 
@@ -77,7 +77,7 @@ A continuación bajamos un poco la velocidad para añadimos poco a poco la mante
 
 Podemos preparar un almíbar para empapar un poco los bizcochos con 100 ml de agua y 100 g de azúcar, que pondremos a hervir hasta que se disuelva el azúcar. Pero no es necesario si nuestros bizcochos están muy tiernos.
 
-Elegimos el plato o stand donde vamos a presentar la tarta y colocamos la primera capa de bizcocho. Con ayuda de una espátula o cuchillo sin sierra, extendemos buttercream de chocolate kinder hasta formar una capa. Añadimos una de las barritas de chocolate Kinder que teníamos reservadas, troceada. Repetir con la siguiente capa de bizcocho, capa de buttercream y barrita troceada. Colocar la última capa de bizcocho. El buttercream restante lo utilizaremos para la decoración final de la tarta.
+Elegimos el plato o stand donde vamos a presentar la tarta y colocamos la primera capa de bizcocho. Con ayuda de una espátula o cuchillo sin sierra, extendemos buttercream de chocolate Kinder hasta formar una capa. Añadimos una de las barritas de chocolate Kinder que teníamos reservadas, troceada. Repetir con la siguiente capa de bizcocho, capa de buttercream y barrita troceada. Colocar la última capa de bizcocho. El buttercream restante lo utilizaremos para la decoración final de la tarta.
 
 Ahora pasamos a cubrir toda la tarta con una capa fina de crema de avellana italiana, intentando que quede lo más lisa posible. Esta primera capa fina dejará ver aún los bizcochos, pero no pasa nada, es así. Llevamos a la nevera unos 30 minutos.
 

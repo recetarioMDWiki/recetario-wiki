@@ -4,16 +4,16 @@
 
 - 195 g (1 y 1/2 cup) de harina de trigo
 - 65 g (1/2 cup) de harina de trigo integral
-- 1 teaspoon de levadura química
-- 1 teaspoon de bicarbonato sódico
-- 1 teaspoon de canela molida
-- 1/4 teaspoon de sal
+- 1 cucharadita (teaspoon) de levadura química
+- 1 cucharadita (teaspoon) de bicarbonato sódico
+- 1 cucharadita (teaspoon) de canela molida
+- 1/4 cucharadita (teaspoon) de sal
 - 1 huevo M (50 g)
 - 100 g (1/2 cup) de azúcar moreno claro
-- 300 ml o 315-325 g (1 y 1/4 cup) de compota de manzana sin endulzar
-- 6 tablespoons (90 ml) de aceite de girasol
+- 315-325 g (1 y 1/4 cup) de compota de manzana sin endulzar
+- 6 cucharadas (tablespoons) (90 ml) de aceite de girasol
 - 60 ml (1/4 cup) de leche
-- 1/2 teaspoon de extracto natural de vainilla
+- 1/2 cucharadita (teaspoon) de extracto natural de vainilla
 
 **Preparación**
 

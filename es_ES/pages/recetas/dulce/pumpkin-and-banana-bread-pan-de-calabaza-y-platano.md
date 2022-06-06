@@ -11,12 +11,12 @@
 - 200 g de puré de calabaza casero
 - 175 g de plátano pelado hecho puré (aprox. 3 plátanos)
 - 350 g de harina trigo
-- 1 teaspoon de levadura química
-- 1 teaspoon de bicarbonato sódico
-- 1/4 teaspoon de sal
-- 1/2 teaspoon de canela en polvo
-- 1/4 teaspoon de nuez moscada
-- 1/8 teaspoon de jengibre en polvo
+- 1 cucharadita (teaspoon) de levadura química
+- 1 cucharadita (teaspoon) de bicarbonato sódico
+- 1/4 cucharadita (teaspoon) de sal
+- 1/2 cucharadita (teaspoon) de canela en polvo
+- 1/4 cucharadita (teaspoon) de nuez moscada
+- 1/8 cucharadita (teaspoon) de jengibre en polvo
 
 **Preparación**
 

@@ -3,15 +3,15 @@
 **Ingredientes**
 
 - 3 plátanos maduros (unos 295 g)
-- 85 g (6 tablespoons) de mantequilla derretida
+- 85 g de mantequilla derretida
 - 2 huevos camperos a temperatura ambiente
 - 170 g de yogur natural
-- 2 teaspoons de pasta o extracto natural de vainilla
+- 2 cucharadas (teaspoons) de pasta o extracto natural de vainilla
 - 260 g (2 cups) de harina de trigo
-- 1 teaspoon de bicarbonato sódico
+- 1 cucharadita (teaspoon) de bicarbonato sódico
 - 80 g de azúcar blanco
 - 80 g de azúcar moreno claro
-- 1 teaspoon de sal
+- 1 cucharadita (teaspoon) de sal
 - 150 g de crema de Lotus
 
 **Preparación**

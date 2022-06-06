@@ -3,14 +3,14 @@
 **Ingredientes**
 
 - 250 g (2 cups) de harina de trigo
-- 3/4 teaspoon de bicarbonato sódico
-- 1/2 teaspoon de sal
+- 3/4 cucharadita (teaspoon) de bicarbonato sódico
+- 1/2 cucharadita (teaspoon) de sal
 - 115 g de mantequilla
 - 225 g (1 cup) de azúcar moreno claro
-- 1 teaspoon de vainilla en pasta
+- 1 cucharadita (teaspoon) de vainilla en pasta
 - 1 huevo M/L
 - 1 plátano maduro, machacado
-- 1/2 teaspoon de canela molida
+- 1/2 cucharadita (teaspoon) de canela molida
 - 1 cup de chocolate negro en trozos
 - 60 g (1/2 cup) de nueces en trozos
 

@@ -5,8 +5,8 @@
 **Ingredientes**
 
 - 400 g de leche condensada
-- 1 tablespoon de extracto de vainilla natural
-- 2 tablespoons de licor (opcional)
+- 1 cucharada (tablespoon) de extracto de vainilla natural
+- 2 cucharadas (tablespoons) de licor (opcional)
 - 2 cups (480 ml) de nata para montar (35% M.G.)
 
 **Preparación**

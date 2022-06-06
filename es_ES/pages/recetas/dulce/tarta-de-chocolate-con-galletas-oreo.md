@@ -4,7 +4,7 @@
 
 - 220 g de harina de repostería
 - 40 g de cacao puro en polvo
-- 2 teaspoons de levadura química
+- 2 cucharaditas (teaspoons) de levadura química
 - 195 g de mantequilla sin sal a temperatura ambiente
 - 170 g de azúcar
 - 3 huevos L
@@ -15,14 +15,14 @@
 - Unos 170 g de galletas Oreo trituradas
 - 60 g de mantequilla a temperatura ambiente
 - 300 g de azúcar glas
-- 1 tablespoon de leche
+- 1 cucharada (tablespoon) de leche
 - 125 g de queso crema frío
 
 *Almíbar de vainilla*
 
 - Agua
 - Azúcar
-- 1 teaspoon de extracto natural de vainilla
+- 1 cucharadita (teaspoon) de extracto natural de vainilla
 
 **Preparación**
 

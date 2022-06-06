@@ -6,14 +6,14 @@
 - 430 g de azúcar
 - 480 g de harina de trigo
 - 3 huevos M
-- 1 teaspoon de colorante en pasta Red Extra de Sugarflair
-- 1 y 1/2 tablespoons de cacao en polvo natural (no procesado holandés)
-- 1 teaspoon de vainilla en pasta
+- 1 cucharadita (teaspoon) de colorante en pasta Red Extra de Sugarflair
+- 1 y 1/2 cucharadas (tablespoons) de cacao en polvo natural (no procesado holandés)
+- 1 cucharadita (teaspoon) de vainilla en pasta
 - Una pizca de sal
 - 350 ml de leche
-- 2 tablespoons de zumo de limón
-- 1 y 1/2 teaspoons de vinagre
-- 1 y 1/2 teaspoons de bicarbonato sódico
+- 2 cucharadas (tablespoons) de zumo de limón
+- 1 y 1/2 cucharaditas (teaspoons) de vinagre
+- 1 y 1/2 cucharaditas (teaspoons) de bicarbonato sódico
 
 *Para decorar (opcional)*
 

@@ -7,8 +7,8 @@
 - 50 g de almendras peladas
 - 40 g de pasas
 - 40 g de arándanos rojos secos
-- 1/4 teaspoon de canela
-- 1/8 teaspoon de sal
+- 1/4 cucharadita (teaspoon) de canela
+- 1/8 cucharadita (teaspoon) de sal
 
 **Preparación**
 

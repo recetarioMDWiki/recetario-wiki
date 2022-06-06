@@ -5,10 +5,10 @@
 **Ingredientes**
 
 - 1 y 3/4 cups de harina de trigo
-- 1 y 1/2 teaspoon de levadura química
-- 1/2 teaspoon de sal
-- 1/4 teaspoon de nuez moscada
-- 3/4 teaspoons de canela
+- 1 y 1/2 cucharaditas (teaspoons) de levadura química
+- 1/2 cucharadita (teaspoon) de sal
+- 1/4 cucharadita (teaspoon) de nuez moscada
+- 3/4 cucharadita (teaspoon) de canela
 - 1/4 cup de aceite de oliva suave o girasol
 - 2/3 cup de azúcar blanco
 - 1 huevo M/L
@@ -18,7 +18,7 @@
 
 - 1/4 cup (55-60 g) de mantequilla derretida
 - 1/2 cup de azúcar blanco
-- 1 tablespoon de canela
+- 1 cucharada (tablespoon) de canela
 
 **Preparación**
 

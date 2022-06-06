@@ -9,19 +9,19 @@
 - 2/3 cup (135 g) de azúcar blanco
 - 1 cup (115 g) de salvado de avena
 - 1 y 1/2 cup (190 g) de harina de trigo normal
-- 2 teaspoons de levadura química
-- 1/2 teaspoon de bicarbonato sódico
-- 1/2 teaspoon de sal
-- 1/4 teaspoon de nuez moscada molida
-- 1/4 teaspoon de canela molida de Ceilán
+- 2 cucharaditas (teaspoons) de levadura química
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
+- 1/2 cucharadita (teaspoon) de sal
+- 1/4 cucharadita (teaspoon) de nuez moscada molida
+- 1/4 cucharadita (teaspoon) de canela molida de Ceilán
 
 *Streusel (opcional)*
 
-- 3 tablespoons (35 g) de azúcar moreno claro
+- 3 cucharadas (tablespoons o 35 g) de azúcar moreno claro
 - 1/4 cup (20 g) de copos de avena rápidos
-- 2 tablespoons de harina de trigo normal
-- 1/4 teaspoon de canela molida
-- 1 tablespoon (14 g) de mantequilla
+- 2 cucharadas (tablespoons) de harina de trigo normal
+- 1/4 cucharadita (teaspoon) de canela molida
+- 1 cucharada (tablespoon o 14 g) de mantequilla
 
 **Preparación**
 
@@ -35,7 +35,7 @@ En otro bol preparamos el streusel. Mezclamos el azúcar con los copos de avena,
 
 Pasado el tiempo, volcamos los ingredientes húmedos sobre los ingredientes secos y mezclamos con una espátula, solo hasta que los ingredientes secos se hayan humedecido. No debemos mezclar en exceso.
 
-Repartimos la masa en los moldes de papel con ayuda de una cuchara de helado o dos cucharas. Si lo queremos usar, añadimos 1 tablespoon de streusel sobre cada muffin y llevamos al horno durante 25 minutos, o hasta que al insertar un palillo en el centro del muffin, éste salga limpio. Sacamos la bandeja del horno y dejamos reposar 5 minutos antes de desmoldar. Pasado el tiempo, sacamos los muffins y los colocamos sobre una rejilla para que se terminen de enfriar por completo.
+Repartimos la masa en los moldes de papel con ayuda de una cuchara de helado o dos cucharas. Si lo queremos usar, añadimos 1 cucharada (tablespoon) de streusel sobre cada muffin y llevamos al horno durante 25 minutos, o hasta que al insertar un palillo en el centro del muffin, éste salga limpio. Sacamos la bandeja del horno y dejamos reposar 5 minutos antes de desmoldar. Pasado el tiempo, sacamos los muffins y los colocamos sobre una rejilla para que se terminen de enfriar por completo.
 
 **Notas**
 

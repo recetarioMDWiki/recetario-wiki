@@ -4,22 +4,22 @@
 
 - 325 g (2 y 1/2 cups) de harina de trigo
 - 135 g (2/3 cup) de azúcar blanco
-- 2 teaspoons de levadura química
-- 1/4 teaspoon de bicarbonato sódico
-- 1/4 teaspoon de sal
-- 1 teaspoon de ralladura de piel de limón
+- 2 cucharaditas (teaspoons) de levadura química
+- 1/4 cucharadita (teaspoon) de bicarbonato sódico
+- 1/4 cucharadita (teaspoon) de sal
+- 1 cucharadita (teaspoon) de ralladura de piel de limón
 - 1 huevo M (50 g)
 - 80 ml (1/3 cup) de aceite de girasol
 - 240 ml (1 cup) de buttermilk
-- 1 teaspoon de extracto natural de vainilla
+- 1 cucharadita (teaspoon) de extracto natural de vainilla
 - 250 g (2 cups) de arándanos azules (frescos o congelados)
 
 *Streusel para decorar por encima (opcional)*
 
 - 50 g (1/4 cup) de azúcar moreno
-- 20 g (2 y 1/2 tablespoons) de harina de trigo
-- 28 g (2 tablespoons) de mantequilla fría, a dados
-- 1 teaspoon de canela molida
+- 20 g (2 y 1/2 cucharadas o tablespoons) de harina de trigo
+- 28 g (2 cucharadas o tablespoons) de mantequilla fría, a dados
+- 1 cucharadita (teaspoon) de canela molida
 
 **Preparación**
 

@@ -2,22 +2,22 @@
 
 **Ingredientes**
 
-- 1 y 1/2 cup (185 g) de harina de trigo
-- 1 cup (125 g) de harina integral de trigo
-- 1/4 cup (50 g) de azúcar muscovado o azúcar moreno 
-- 3/4 cup (150 g) de azúcar blanco 
-- 1/2 teaspoon de levadura química
-- 1 teaspoon de bicarbonato sódico
-- 1 teaspoon de canela molida
-- 1/2 teaspoon de jengibre molido
-- 1/4 teaspoon de nuez moscada molida
-- 1/4 teaspoon de allspice molida
-- 1/2 teaspoon de sal
+- 185 g (1 y 1/2 cup) de harina de trigo
+- 125 g (1 cup) de harina integral de trigo
+- 50 g (1/4 cup) de azúcar muscovado o azúcar moreno 
+- 150 g (3/4 cup) de azúcar blanco 
+- 1/2 cucharadita (teaspoon) de levadura química
+- 1 cucharadita (teaspoon) de bicarbonato sódico
+- 1 cucharadita (teaspoon) de canela molida
+- 1/2 cucharadita (teaspoon) de jengibre molido
+- 1/4 cucharadita (teaspoon) de nuez moscada molida
+- 1/4 cucharadita (teaspoon) de allspice molida
+- 1/2 cucharadita (teaspoon) de sal
 - 2 (250 g) manzanas cortadas a trocitos
 - 2 huevos M (100 g)
-- 1 cup (230 g) de puré de calabaza
-- 1/2 cup (120 ml o 125 g) de compota de manzana sin endulzar
-- 1 teaspoon de extracto de vainilla
+- 230 g (1 cup) de puré de calabaza
+- 125 g (1/2 cup) de compota de manzana sin endulzar
+- 1 cucharadita (teaspoon) de extracto de vainilla
 
 **Preparación**
 

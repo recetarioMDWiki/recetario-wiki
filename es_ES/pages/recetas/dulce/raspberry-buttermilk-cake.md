@@ -4,17 +4,17 @@
 
 **Ingredientes**
 
-1 cup (130 g) de harina de trigo
-1/2 teaspoon (2 g) de levadura química
-1/2 teaspoon (2 g) de bicarbonato sódico
-1/4 teaspoon de sal
+130 g (1 cup) de harina de trigo
+1/2 cucharadita (teaspoon o 2 g) de levadura química
+1/2 cucharadita (teaspoon o 2 g) de bicarbonato sódico
+1/4 cucharadita (teaspoon) de sal
 56 g de mantequilla sin sal, ablandada
-2/3 cup (146 g) más 1 y 1/2 tablespoons (22 g) de azúcar, por separado
-1/2 teaspoon extracto o pasta pura de vainilla
-1/2 teaspoon de ralladura de limón, opcional
-1 large (57 g) egg
-1/2 cup (118 ml) buttermilk
-1 cup (5 ounces or 140 g) frambuesas frescas
+146 g (2/3 cup) y 22 g (1 y 1/2 cucharadas o tablespoons) de azúcar, por separado
+1/2 cucharadita (teaspoon) extracto o pasta pura de vainilla
+1/2 cucharadita (teaspoon) de ralladura de limón, opcional
+1 huevo M/L
+118 ml (1/2 cup) de buttermilk
+140 g (1 cup) frambuesas frescas
 
 **Preparación**
 
@@ -28,7 +28,7 @@ Llevamos al horno hasta que esté dorado y al pincharlo con un palillo o varilla
 
 **Notas**
 
-Si no encontramos buttermilk en el mercado, podemos preparar uno casero, añadiendo 1 tablespoon de vinagre o zumo de limón a 1 cup de leche, mezclamos y dejamos reposar hasta que se corte, unos 10 minutos. Y ya podemos utilizarlo. Cuidado, que la receta solo utiliza 1/2 cup de buttermilk.
+Si no encontramos buttermilk en el mercado, podemos preparar uno casero, añadiendo 1 cucharada (tablespoon) de vinagre o zumo de limón a 1 cup de leche, mezclamos y dejamos reposar hasta que se corte, unos 10 minutos. Y ya podemos utilizarlo. Cuidado, que la receta solo utiliza 1/2 cup de buttermilk.
 
 **Molde utilizado:** [molde redondo desmoldable de 23 cm](../../moldes-y-utensilios.md)
 

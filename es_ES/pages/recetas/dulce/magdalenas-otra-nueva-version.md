@@ -9,7 +9,7 @@
 - 3 huevos M
 - 50 ml de nata (35% m.g.)
 - 200 g de harina de trigo
-- 1 y 1/2 teaspoons de levadura química
+- 1 y 1/2 cucharaditas (teaspoons) de levadura química
 - Ralladura de limón
 
 **Preparación**
