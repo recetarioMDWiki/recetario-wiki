@@ -4,15 +4,15 @@
 
 **Ingredientes**
 
-- 84 g de mantequilla, a temperatura ambiente
-- 3/4 cup de azúcar blanco
+- 85 g de mantequilla, a temperatura ambiente
+- 150 g (3/4 cup) de azúcar blanco
 - 1 huevo M/L, a temperatura ambiente
-- 3/4 cup de yogur griego, a temperatura ambiente
-- 2 teaspoons de pasta o extracto de vainilla
-- 1 y 1/2 cups de harina de trigo
-- 1 y 1/2 teaspoons de levadura química
-- 1/2 teaspoon de bicarbonato sódico
-- 3/4 teaspoon de sal
+- 210 g (3/4 cup) de yogur griego, a temperatura ambiente
+- 2 cucharaditas (teaspoons) de pasta o extracto de vainilla
+- 188 g (1 y 1/2 cups) de harina de trigo
+- 1 y 1/2 cucharaditas (teaspoons) de levadura química
+- 1/2 cucharadita (teaspoon) de bicarbonato sódico
+- 3/4 cucharadita (teaspoon) de sal
 - 140 g de chocolate negro en trozos
 
 **Preparación**
