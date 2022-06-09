@@ -10,6 +10,7 @@
 
 * [Banana Bread - Pan de plátano](../recetas/dulce/banana-bread-pan-de-platano.md)
 * [Banana Bread - Pan de plátano - Otra versión](../recetas/dulce/banana-bread-pan-de-platano-otra-version.md)
+* [Banana Bread con relleno de canela](../recetas/dulce/banana-bread-relleno-canela.md)
 * [Barritas de granola](../recetas/dulce/barritas-de-granola.md)
 * [Bizcochitos fruta & fibra](../recetas/dulce/bizcochitos-fruta-y-fibra.md)
 * [Bizcocho de claras](../recetas/dulce/bizcocho-de-claras.md)
