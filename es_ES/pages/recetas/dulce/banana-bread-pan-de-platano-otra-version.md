@@ -15,7 +15,7 @@
 - 1 cucharadita (teaspoon) de levadura química
 - 1/2 cucharadita (teaspoon) de bicarbonato sódico
 - 1/4 cucharadita (teaspoon) de sal
-- 60 g (1/2 cup) de nueces trituradas
+- 60 g (1/2 cup) de nueces picadas
 
 **Preparación**
 
@@ -47,7 +47,7 @@ Si no encontramos buttermilk podemos prepararlo casero utilizando una de estas o
 *- 160 ml (2/3 cup) de yogur natural (desnatado) + 80 ml (1/3 cup) de leche
 (mezclamos y dejamos reposar 10 minutos)*
 
-Para esta receta yo utilicé la primera opción, pero tened en cuenta que se indica 1 cup (240 ml) y en la receta **solo necesitamos 1/2 cup (120 ml)**.
+Para esta receta yo utilicé la primera opción, pero tened en cuenta que se indica 1 cup (240 ml) y en la receta **sólo necesitamos 1/2 cup (120 ml)**.
 
 Podemos añadir un puñadito de chips de chocolate al mismo tiempo que las nueces.
 

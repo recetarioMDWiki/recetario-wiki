@@ -5,9 +5,9 @@
 - 190 g de copos de avena finos
 - 60 g de avellanas tostadas, troceadas
 - 60 g de pasas
-- 1/4 cup (56 g) de mantequilla
-- 1/4 cup (60 ml) de miel
-- 1/3 cup (65 g) de azúcar moreno claro
+- 56 g (1/4 cup) de mantequilla
+- 60 ml (1/4 cup) de miel
+- 65 g (1/3 cup) de azúcar moreno claro
 - 1/8 cucharadita (teaspoon) de sal
 - 1/2 cucharadita (teaspoon) de extracto natural de vainilla
 
