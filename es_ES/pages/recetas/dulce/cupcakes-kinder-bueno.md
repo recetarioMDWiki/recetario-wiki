@@ -23,7 +23,7 @@
 
 **Preparación**
 
-**De los bizcochos**
+*De los bizcochos*
 
 Preparamos una bandeja para cupcakes con los papelitos. Calentamos el horno con calor arriba y abajo a 180 ºC. 
 
@@ -33,7 +33,7 @@ También podemos batirlo todo con batidora, pero siempre a la velocidad mínima,
 
 Repartimos la masa en las cápsulas con ayuda de una cuchara de helado, o como nos sea más cómodo. Llevamos al horno unos 20 minutos.
 
-**De la crema**
+*De la crema*
 
 Ponemos a batir las yemas en el bol de la Kitchenaid con el accesorio de varillas.
 
@@ -41,7 +41,7 @@ Por otro lado, en un cazo ponemos el azúcar y el agua, que empape todo el azúc
 
 Una vez que el bol se ha enfriado, podemos ir añadiendo la mantequilla poco a poco. Una vez que la tengamos toda incorporada, subiremos la velocidad de batido para que la crema emulsione y quede una crema muy esponjosa. Por último, añadiremos las cucharadas de pasta de avellana italiana y batiremos hasta integrar por completo.
 
-**Montaje**
+*Montaje*
 
 Una vez estén los cupcakes fríos, los decoramos con la crema, poniéndola en una manga pastelera con la boquilla que tengamos. Yo he usado la 1M de Wilton. Para terminar, podemos colocar un trocito de Kinder Bueno sobre cada uno.
 
