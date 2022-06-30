@@ -43,4 +43,6 @@ Dejamos enfriar en el molde sin desmoldar 15 minutos. Una vez desmoldado lo deja
 
 Podemos preparar también una ganache de chocolate negro para rociar el bizcocho. Troceamos 150 g de chocolate negro y lo colocamos en un recipiente resistente al calor. Por otro lado calentamos 150 ml de nata 35% m.g. Cuando hierva, la vertemos sobre el chocolate negro y removemos con unas varillas hasta lograr una ganache brillante.
 
+**Molde utilizado:** [Molde Bundt Kugelhopf de 10 cups](../../moldes-y-utensilios.md)
+
 **Receta de:** [Objetivo: Cupcake perfecto](http://www.objetivocupcake.com/2016/10/bundt-de-calabaza-y-chocolate-negro.html)

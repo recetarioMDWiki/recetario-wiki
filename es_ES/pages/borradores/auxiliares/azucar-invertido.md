@@ -4,7 +4,7 @@
 
 - 150 g agua mineral embotellada
 - 350 g azúcar
-- Gasificantes(1 sobre con ácido tartárico, cítrico o málico y 1 sobre con bicarbonato sódico)
+- Gasificantes (1 sobre con ácido tartárico, cítrico o málico y 1 sobre con bicarbonato sódico)
 
 **Preparación**
 
@@ -20,7 +20,7 @@ Dejamos enfriar y tapamos. Envasamos en tarro de cristal.
 
 Los gasificantes son fáciles de encontrar en los supermercados, bajo la marca «El Tigre» o «Armisen»
 
-Si no tienes a mano un termómetro, calcula que el punto de ebullicióndel agua es 100ºC y guíate por el tiempo.
+Si no tienes a mano un termómetro, calcula que el punto de ebullición del agua es 100ºC y guíate por el tiempo.
 
 No conservar nunca en el frigorífico, sino a temperatura ambiente.
 

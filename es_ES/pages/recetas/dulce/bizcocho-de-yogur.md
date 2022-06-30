@@ -6,7 +6,7 @@
 
 - 1 yogur de limón o natural
 - 3 vasos de yogur de harina de trigo
-- 1 teaspoon de levadura química
+- 1 cucharadita (teaspoon) de levadura química
 - 3 huevos M/L
 - 2 vasos de yogur de azúcar
 - 1 vaso de yogur de aceite de girasol o aceite de oliva suave

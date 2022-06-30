@@ -2,13 +2,13 @@
 
 **Ingredientes**
 
-- 8 claras de huevo M
-- 170 g de azúcar
-- 285 g de harina de trigo
-- 2 + 1/4 cucharaditas (teaspoons) de levadura química
-- 170 g de nata para montar (35% M.G.)
-- 97 g de mantequilla sin sal, derretida
-- Ralladura de 1 o 2 limones
+- 7 claras de huevo M
+- 150 g de azúcar
+- 250 g de harina de trigo
+- 2 cucharaditas (teaspoons) de levadura química
+- 150 g de nata para montar (35% M.G.)
+- 85 g de mantequilla sin sal, derretida
+- Ralladura de 2 limones
 
 **Preparación**
 
@@ -24,8 +24,6 @@ Para conservarlo lo podemos envolver en papel de aluminio y luego guardarlo en u
 
 Si os gusta, podéis espolvorear un poco de azúcar por la superficie antes de meterlo en el horno. Esto creará una costra crujiente.
 
-Las cantidades de la receta original están calculadas para 7 claras. Se pueden dividir entre 7 y calcular según las claras que tengamos. En mi caso he hecho los cálculos para 8 claras.
-
 **Molde utilizado:** [Molde loaf o de pan](../../moldes-y-utensilios.md)
 
-**Receta de:** Secocina
+**Receta de:** [Secocina](https://secocina.com/recetas/bizcocho-de-limon-para-aprovechar-claras/)

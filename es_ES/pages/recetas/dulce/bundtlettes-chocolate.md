@@ -37,4 +37,4 @@ También podemos utilizar un molde bundt de 6 cups o un molde loaf de unos 21 cm
 
 **Molde utilizado:** [molde Bundtlette Anniversary](../../moldes-y-utensilios.md)
 
-**Receta de:** [Libro Fiesta, de Bea Roque](https://www.claudiaandjulia.com/products/libro-fiesta-un-dulce-para-cada-ocasion)
+**Receta de:** Libro Fiesta, de Bea Roque
