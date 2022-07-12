@@ -1,4 +1,4 @@
-## Magdalenas - Otra versión
+## Magdalenas - Otra nueva versión
 
 ![Magdalenas](../../uploads/images/magdalenas-otra-nueva-version.jpg "Magdalenas")
 

@@ -2,17 +2,17 @@
 
 **Ingredientes**
 
-- 3/4 cup (97 g) de harina de trigo normal
+- 97 g (3/4 cup) de harina de trigo normal
 - 1/2 cucharadita (teaspoon) de bicarbonato sódico
 - 1/4 cucharadita (teaspoon) de canela molida
 - Una pizca de allspice (pimienta de Jamaica) molida
 - 1/8 cucharadita (teaspoon) de sal
-- 1/4 cup (56 g) de mantequilla
-- 1/4 cup (50 g) de azúcar moreno claro
-- 1/4 cup (50 g) de azúcar blanco
+- 56 g (1/4 cup) de mantequilla
+- 50 g (1/4 cup) de azúcar moreno claro
+- 50 g (1/4 cup) de azúcar blanco
 - 1 huevo M (50 g)
-- 1/4 cup (56-65 g) de [compota de manzana rosa o clásica sin endulzar](../auxiliares/compota-de-manzana-applesauce.md)
-- 1/4 cup (56 g) de yogur griego
+- 56-65 g (1/4 cup) de [compota de manzana rosa o clásica sin endulzar](../auxiliares/compota-de-manzana-applesauce.md)
+- 56 g (1/4 cup) de yogur griego
 - 1/2 cucharadita (teaspoon) de extracto natural de vainilla
 
 *Para decorar (opcional)*

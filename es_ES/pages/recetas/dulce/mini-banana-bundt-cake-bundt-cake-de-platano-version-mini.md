@@ -4,15 +4,15 @@
 
 **Ingredientes**
 
-- 3/4 cup (97 g) de harina de trigo
+- 97 g (3/4 cup) de harina de trigo
 - 1/2 cucharadita (teaspoon) de bicarbonato sódico
 - 1/8 cucharadita (teaspoon) de sal
-- 1/4 cup (56 g) de mantequilla
-- 1/2 cup (100 g) de azúcar blanco
+- 56 g (1/4 cup) de mantequilla
+- 100 g (1/2 cup) de azúcar blanco
 - 1 huevo M (50 g)
 - 1/2 cucharadita (teaspoon) de extracto natural de vainilla
-- 1/4 cup (56 g) de plátano maduro machacado
-- 1/4 cup (56 g) de yogur griego
+- 56 g (1/4 cup) de plátano maduro machacado
+- 56 g (1/4 cup) de yogur griego
 - 50 g de chips de chocolate (opcional)
 
 **Preparación**
