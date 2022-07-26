@@ -24,6 +24,6 @@ Le quitamos a las ñoras los rabitos y las semillas con cuidado. Luego las ponem
 
 Picamos los ajos, las cebollas, los pimientos y hacemos un sofrito con un poco de sal en una cacerola. Mientras pelamos y picamos las zanahorias y los tomates, y los añadimos al sofrito, junto con los clavos y la pimienta.
 
-Cuando esté todo pochado, añadimos las carrilleras en tacos y la rehogamos un poco. Añadimos el vino y lo dejamos reducir. Añadimos lo que hayamos sacado de las ñoras a la cacerola y agregamos agua y un poco de sal. Dejamos hacer hasta que la carne esté tierna, removiendo de vez en cuando."
+Cuando esté todo pochado, añadimos las carrilleras en tacos y la rehogamos un poco. Añadimos el vino y lo dejamos reducir. Añadimos lo que hayamos sacado de las ñoras a la cacerola y agregamos agua y un poco de sal. Dejamos hacer hasta que la carne esté tierna, removiendo de vez en cuando.
 
 **Receta de:** Joaquín Martín

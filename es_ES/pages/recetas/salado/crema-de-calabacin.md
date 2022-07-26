@@ -23,6 +23,6 @@ Cuando esté todo tierno, lo trituramos con la batidora de brazo y servimos cali
 
 Cuando la verdura esté tierna, si queremos, podemos añadir 3 o 4 quesitos cremosos untables, tipo El Caserío, o queso de untar, tipo Philadelphia. Esto hará que sea más cremosa, pero también la hará más calórica.
 
-Como el calabacín tiene mucha agua, es mejor no congelar la crema, porque al descongelarla pierde la textura."
+Como el calabacín tiene mucha agua, es mejor no congelar la crema, porque al descongelarla pierde la textura.
 
 **Receta de:** Mamá

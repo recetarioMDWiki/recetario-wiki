@@ -8,7 +8,13 @@
 - 4 zanahorias
 - 3 huevos
 - 4 patatas grandes
-- [Mayonesa](../auxiliares/mayonesa.md)
+
+*Para la [mayonesa](../auxiliares/mayonesa.md)*
+
+- 1 huevo
+- Una pizca de sal
+- 200 ml de aceite de girasol
+- Un poco de zumo de limón o vinagre
 
 **Preparación**
 
@@ -18,7 +24,11 @@ Pelamos las zanahorias y las cortamos a tacos pequeños. Las echamos en una olla
 
 Una vez frío, ponemos las zanahorias, las patatas y las gambas en un bol. Dejamos una de las yemas para decorar y picamos el resto de huevos también en el bol. Mezclamos. Si lo probamos en este punto y notamos que está un poco sosa, podemos añadir sal y volver a mezclar.
 
-Preparamos una mayonesa de dos huevos, mejor si está un poco espesa. Echamos un par de cucharadas grandes en el bol de la ensaladilla y mezclamos bien. Si hace falta más, añadimos y mezclamos, hasta que esté a nuestro gusto.
+Preparamos una mayonesa de dos huevos, mejor si está un poco espesa. 
+
+En el vaso de la batidora ponemos el huevo, la pizca de sal y la mitad del aceite. Apoyamos el brazo de la batidora en el fondo y empezamos a batir, sin mover la batidora. Cuando empiece a tomar un poco de consistencia iremos moviendo la batidora arriba y abajo muy despacio y añadiendo poco a poco el resto del aceite. Añadimos el zumo de limón o el vinagre y terminamos de integrar.
+
+Echamos un par de cucharadas grandes de mayonesa en el bol de la ensaladilla y mezclamos bien. Si hace falta más, añadimos y mezclamos, hasta que esté a nuestro gusto.
 
 Para terminar, alisamos la superficie, cubrimos con una capa fina de mayonesa y espolvoreamos la yema que habíamos reservado. Servimos fría.
 

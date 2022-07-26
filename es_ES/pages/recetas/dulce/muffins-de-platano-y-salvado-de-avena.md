@@ -3,12 +3,12 @@
 **Ingredientes**
 
 - 340 g de plátano bien maduro, machacado
-- 1/2 cup (120 ml) de yogur natural
-- 1/4 cup (60 ml) de aceite de girasol
+- 120 ml (1/2 cup) de yogur natural
+- 60 ml (1/4 cup) de aceite de girasol
 - 1 huevo mediano (50 g)
-- 2/3 cup (135 g) de azúcar blanco
-- 1 cup (115 g) de salvado de avena
-- 1 y 1/2 cup (190 g) de harina de trigo normal
+- 135 g (2/3 cup) de azúcar blanco
+- 115 g (1 cup) de salvado de avena
+- 190 g (1 y 1/2 cup) de harina de trigo normal
 - 2 cucharaditas (teaspoons) de levadura química
 - 1/2 cucharadita (teaspoon) de bicarbonato sódico
 - 1/2 cucharadita (teaspoon) de sal
@@ -18,7 +18,7 @@
 *Streusel (opcional)*
 
 - 3 cucharadas (tablespoons o 35 g) de azúcar moreno claro
-- 1/4 cup (20 g) de copos de avena rápidos
+- 20 g (1/4 cup) de copos de avena rápidos
 - 2 cucharadas (tablespoons) de harina de trigo normal
 - 1/4 cucharadita (teaspoon) de canela molida
 - 1 cucharada (tablespoon o 14 g) de mantequilla
@@ -45,4 +45,4 @@ Como la mayoría de los muffins, una vez fríos los podemos congelar. Para desco
 
 **Molde utilizado:** [bandeja para muffins](../../moldes-y-utensilios.md)
 
-**Receta de:** [Alma Obregón](https://www.instagram.com/p/Bgoj5jZlJxM/?hl=es&taken-by=alma_cupcakes)
+**Receta de:** Alma Obregón

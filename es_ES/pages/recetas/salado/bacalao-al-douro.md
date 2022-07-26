@@ -4,7 +4,7 @@
 
 - 400 g de lomos de bacalao desalado
 - 1 cebolla
- Aceite de oliva
+- Aceite de oliva
 - 1 cucharada de perejil picado
 - 3 o 4 patatas
 - 3 huevos L

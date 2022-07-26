@@ -4,17 +4,17 @@
 
 **Ingredientes**
 
-130 g (1 cup) de harina de trigo
-1/2 cucharadita (teaspoon o 2 g) de levadura química
-1/2 cucharadita (teaspoon o 2 g) de bicarbonato sódico
-1/4 cucharadita (teaspoon) de sal
-56 g de mantequilla sin sal, ablandada
-146 g (2/3 cup) y 22 g (1 y 1/2 cucharadas o tablespoons) de azúcar, por separado
-1/2 cucharadita (teaspoon) extracto o pasta pura de vainilla
-1/2 cucharadita (teaspoon) de ralladura de limón, opcional
-1 huevo M/L
-118 ml (1/2 cup) de buttermilk
-140 g (1 cup) frambuesas frescas
+- 130 g (1 cup) de harina de trigo
+- 1/2 cucharadita (teaspoon o 2 g) de levadura química
+- 1/2 cucharadita (teaspoon o 2 g) de bicarbonato sódico
+- 1/4 cucharadita (teaspoon) de sal
+- 56 g de mantequilla sin sal, ablandada
+- 146 g (2/3 cup) y 22 g (1 y 1/2 cucharadas o tablespoons) de azúcar, por separado
+- 1/2 cucharadita (teaspoon) extracto o pasta pura de vainilla
+- 1/2 cucharadita (teaspoon) de ralladura de limón, opcional
+- 1 huevo M/L
+- 118 ml (1/2 cup) de buttermilk
+- 140 g (1 cup) frambuesas frescas
 
 **Preparación**
 

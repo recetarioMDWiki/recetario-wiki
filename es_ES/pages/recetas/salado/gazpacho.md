@@ -4,7 +4,8 @@
 
 - 1 kg de tomates
 - 1 diente de ajo
-- Medio pimiento verde y medio rojo
+- Medio pimiento verde 
+- Medio pimiento rojo
 - Pan duro, remojado
 - Pepino
 - Aceite de oliva

@@ -31,4 +31,4 @@ Podemos congelarlos individualmente, bien envueltos en papel film.
 
 **Molde utilizado:** [bandeja para muffins](../../moldes-y-utensilios.md)
 
-**Receta de:** Alma Obregón
+**Receta de:** [Alma Obregón](https://www.instagram.com/p/Bgoj5jZlJxM/?hl=es&taken-by=alma_cupcakes)

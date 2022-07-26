@@ -2,14 +2,14 @@
 
 **Ingredientes**
 
-500 g de magro de ternera
-Sal
-Pimienta negra
-Una cucharada de perejil picado
-Un diente de ajo majado
-2 cucharadas de salsa Worcestershire o perrins
+- 500 g de magro de ternera
+- Sal
+- Pimienta negra
+- Una cucharada de perejil picado
+- Un diente de ajo majado
+- 2 cucharadas de salsa Worcestershire o perrins
 
-**Ingredientes**
+**Preparación**
 
 Salpimentamos la carne y añadimos el resto de ingredientes. Removemos bien para integrarlos completamente.
 
@@ -25,7 +25,7 @@ O utilizando un molde para hamburguesas, con el que sólo hay que poner la carne
 
 Cada hamburguesa podemos hacerla de 150 g más o menos. Una vez que están todas formadas, las hacemos a la plancha, al punto que nos guste.
 
-**Ingredientes**
+**Notas**
 
 Las hamburguesas que no vayáis a consumir en el momento, podéis congelarlas metidas en una bolsa de congelación, con un trozo de papel de horno para que se puedan separar fácilmente.
 

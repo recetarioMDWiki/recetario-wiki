@@ -7,7 +7,8 @@
 - 2 zanahorias
 - 1 trozo de calabaza (unos 400 g aproximadamente)
 - 750 g de agua o caldo vegetal
-- Sal y pimienta 
+- Sal
+- Pimienta negra
 
 **Preparación**
 

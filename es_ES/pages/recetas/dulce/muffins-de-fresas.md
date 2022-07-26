@@ -2,10 +2,10 @@
 
 **Ingredientes**
 
-- 250 ml de leche desnatada
+- 250 ml de leche
 - 1 cucharadita (teaspoon) de zumo de limón
 - 225 g de fresas
-- 80 g de azúcar
+- 80 g de azúcar blanco
 - 160 g de harina de trigo
 - 60 g de harina de trigo integral
 - 2 cucharaditas (teaspoons) de levadura química

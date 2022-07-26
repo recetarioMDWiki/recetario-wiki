@@ -2,11 +2,11 @@
 
 **Ingredientes**
 
-- 1/2 cup (40 g) de salvado de trigo natural
+- 40 g (1/2 cup) de salvado de trigo natural
 - 2 y 1/2 cucharadas (tablespoons o 40 ml) de agua o zumo natural de naranja
 - 35 g (1/3 cup) de copos de avena (gruesos o finos)
-- 1/2 cup (120 ml) de yogur natural
-- 1/4 cup (60 ml) de leche
+- 120 ml (1/2 cup) de yogur natural
+- 60 ml (1/4 cup) de leche
 - 3 cucharadas (tablespoons o 45 ml) de aceite de girasol
 - 1 cucharada (tablespoon o 15 ml) de melaza o miel de caña
 - 1 huevo M (50 g)

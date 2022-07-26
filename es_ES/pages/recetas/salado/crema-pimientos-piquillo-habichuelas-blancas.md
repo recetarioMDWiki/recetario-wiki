@@ -9,7 +9,7 @@
 - Aceite de oliva virgen extra
 - Caldo vegetal, o de pollo, o agua
 - Sal
-- Pimiento negra molida
+- Pimienta negra molida
 - Perejil
 
 **Preparación**

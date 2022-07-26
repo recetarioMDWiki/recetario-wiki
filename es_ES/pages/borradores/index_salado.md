@@ -260,6 +260,7 @@
 - [grilled-corn-salad-with-tomato-and-avocado.md](salado/grilled-corn-salad-with-tomato-and-avocado.md)
 - [guiso-de-ternera-a-la-cerveza.md](salado/guiso-de-ternera-a-la-cerveza.md)
 - [guiso-de-ternera-con-pasta-en-olla-rapida.md](salado/guiso-de-ternera-con-pasta-en-olla-rapida.md)
+- [gyozas-cerdo-col-china.md](salado/gyozas-cerdo-col-china.md)
 - [habichuelas-verdes-a-la-mayordoma-y-patatas-hasselback.md](salado/habichuelas-verdes-a-la-mayordoma-y-patatas-hasselback.md)
 - [habichuelas-verdes-con-bacalao-y-aceitunas.md](salado/habichuelas-verdes-con-bacalao-y-aceitunas.md)
 - [ham,-carrot-and-beer-bundtlettes.md](salado/ham,-carrot-and-beer-bundtlettes.md)

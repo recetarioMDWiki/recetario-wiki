@@ -1,5 +1,7 @@
 ## Tarta de chocolate con galletas Oreo
 
+**Ingredientes**
+
 *Para el bizcocho*
 
 - 220 g de harina de repostería

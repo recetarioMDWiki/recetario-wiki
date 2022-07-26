@@ -33,6 +33,6 @@ La tahina podemos comprarla ya hecha, pero no es nada complicado [hacerla casera
 
 Cantidades para 6 personas, como aperitivo.
 
-**Receta de:** [El comidista](https://elcomidista.elpais.com/elcomidista/2018/05/02/receta/1525296230_877911.html)
+**Receta de:** [El Comidista](https://elcomidista.elpais.com/elcomidista/2018/05/02/receta/1525296230_877911.html)
 
 
