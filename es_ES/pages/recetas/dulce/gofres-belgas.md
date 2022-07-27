@@ -17,7 +17,7 @@
 
 Disolvemos la levadura en la leche templada y reservamos.
 
-En un cuenco grande (puede ser el de nuestra amasadora, equipada con el accesorio de gancho), mezclamos la harina, el azúcar vainillado y la sal hasta combinar bien. A continuación, hacemos un hueco en el centro, añadimos los huevos y vertemos la mezcla de leche y levadura. Mezclamos suavemente durante unos 5-6 minutos hasta que quede todo perfectamente integrado en una masa homogénea, suave y bastante pegajosa.
+En un cuenco grande (puede ser el de nuestra amasadora, equipada con el accesorio de gancho), mezclamos la harina y la sal hasta combinar bien. A continuación, hacemos un hueco en el centro, añadimos los huevos y la vainilla, y vertemos la mezcla de leche y levadura. Mezclamos suavemente durante unos 5-6 minutos hasta que quede todo perfectamente integrado en una masa homogénea, suave y bastante pegajosa.
 
 Cubrimos bien con film transparente y dejamos reposar en un lugar cálido y alejado de las corrientes de aire durante unos 30 minutos o hasta que doble su volumen.
 

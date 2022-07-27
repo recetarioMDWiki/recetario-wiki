@@ -46,7 +46,6 @@ Añadimos el vaso de vino blanco y tapamos. Dejamos unos 10 minutos hasta que el
 
 Añadimos el tomate triturado y el laurel, bajamos a fuego lento, añadimos un poco más de sal, orégano y albahaca y tapamos. Dejamos al menos una hora en el fuego, removiendo de vez en cuando. Podemos ir probando para ajustar de sal o especias. Estará lista cuando apenas tenga agua y sea una salsa espesa.
 
-
 Mientras se hace la boloñesa, preparamos la [salsa bechamel](../auxiliares/salsa-bechamel.md).
 
 Derretimos la mantequilla en un cazo al fuego. Añadimos toda la harina de golpe y apartamos del fuego. Con una cuchara de madera removemos bien para que no se formen grumos. Añadimos un poco de leche caliente y removemos rápidamente, hasta que obtengamos una crema densa. Añadimos más leche caliente y seguimos removiendo con unas varillas. Volvemos a colocar el cazo a fuego medio, unos 10 minutos, y vamos añadiendo poco a poco el resto de la leche. Añadimos sal, pimienta negra molida y nuez moscada. Removemos y apartamos del fuego.
