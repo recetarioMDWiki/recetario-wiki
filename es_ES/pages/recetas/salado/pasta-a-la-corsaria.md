@@ -12,7 +12,6 @@
 - Medio vaso de vino blanco
 - 150 g de pasta
 - Sal
-- Queso rallado
 
 **Preparación**
 

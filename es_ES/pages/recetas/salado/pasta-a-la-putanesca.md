@@ -26,6 +26,6 @@ Por otro lado cocemos la pasta en agua hirviendo con sal, la dejamos el tiempo q
 
 Podemos utilizar tomates frescos en lugar de enlatados, pero tendremos que prolongar un poco más la cocción.
 
-La salsa también podemos utilizar de acompañamiento para pescados como el atún o carnes como el pollo."
+La salsa también podemos utilizar de acompañamiento para pescados como el atún o carnes como el pollo.
 
 **Receta de:** [El restaurante del fin del mundo](http://restaurantefinmundo.blogspot.com.es/2014/11/espagueti-la-putanesca.html)

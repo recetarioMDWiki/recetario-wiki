@@ -26,7 +26,7 @@ Una vez frío, ponemos las zanahorias, las patatas y las gambas en un bol. Dejam
 
 Preparamos una mayonesa de dos huevos, mejor si está un poco espesa. 
 
-En el vaso de la batidora ponemos el huevo, la pizca de sal y la mitad del aceite. Apoyamos el brazo de la batidora en el fondo y empezamos a batir, sin mover la batidora. Cuando empiece a tomar un poco de consistencia iremos moviendo la batidora arriba y abajo muy despacio y añadiendo poco a poco el resto del aceite. Añadimos el zumo de limón o el vinagre y terminamos de integrar.
+En el vaso de la batidora ponemos los huevos, la pizca de sal y la mitad del aceite. Apoyamos el brazo de la batidora en el fondo y empezamos a batir, sin mover la batidora. Cuando empiece a tomar un poco de consistencia iremos moviendo la batidora arriba y abajo muy despacio y añadiendo poco a poco el resto del aceite. Añadimos el zumo de limón o el vinagre y terminamos de integrar.
 
 Echamos un par de cucharadas grandes de mayonesa en el bol de la ensaladilla y mezclamos bien. Si hace falta más, añadimos y mezclamos, hasta que esté a nuestro gusto.
 

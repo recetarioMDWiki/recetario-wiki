@@ -18,7 +18,7 @@
 
 Preparamos un caldo con el esqueleto del pollo, la hoja de laurel, el agua y sal. Lo dejaremos cociendo mientras se macera el pollo, una hora será suficiente.
 
-Ponemos las pechugas en un bol y las cubrimos con salsa de soja, el zumo de un limón y el jenjibre. Lo dejamos macerar una hora.
+Ponemos las pechugas en un bol y las cubrimos con salsa de soja, el zumo de un limón y el jengibre. Lo dejamos macerar una hora.
 
 Una vez transcurrido el tiempo de maceración, escurrimos las pechugas, las pasamos primero por harina de maíz y luego por huevo batido. Freímos para que queden bien crujientes por fuera y bien hechas por dentro. Reservamos.
 
@@ -29,6 +29,5 @@ Podemos servir los filetes cortados en tiras con rodajas de limón.
 **Receta de:** [Ole tus fogones](http://www.oletusfogones.es/2014/03/17/pollo-al-limon/)
 
 <!-- Probar las recetas de
-	-- http://www.recetasdecocinadesergio.com/2013/03/receta-pollo-al-limon-facil-casera.html
 	-- http://www.lasrecetasdemj.com/2013/03/pollo-al-limon-estilo-chino.html"
 	-->
