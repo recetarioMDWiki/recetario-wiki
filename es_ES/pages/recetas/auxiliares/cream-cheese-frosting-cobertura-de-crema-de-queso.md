@@ -2,9 +2,9 @@
 
 **Ingredientes**
 
-- 3 tablespoons (42 g) de mantequilla
+- 42 g (3 tablespoons) de mantequilla
 - 90 g (3/4 cup) de azúcar glas
-- 1/4 teaspoon de extracto natural de vainilla
+- 1/4 cucharadita (teaspoon) de extracto natural de vainilla
 - 170 g de queso crema, frío
 
 **Preparación**

@@ -4,13 +4,13 @@
 
 - 1 kg de manzanas
 - 120 ml (1/2 cup) de agua
-- 1 teaspoon de zumo de limón
+- 1 cucharadita (teaspoon) de zumo de limón
 
 *Aditivos opcionales*
 
-- 2 tablespoon (25 g) de azúcar blanco o moreno claro
-- 1/2 teaspoon de canela molida
-- 1/4 teaspoon de nuez moscada molida
+- 2 cucharadas (tablespoon o 25 g) de azúcar blanco o moreno claro
+- 1/2 cucharadita (teaspoon) de canela molida
+- 1/4 cucharadita (teaspoon) de nuez moscada molida
 
 **Preparación**
 

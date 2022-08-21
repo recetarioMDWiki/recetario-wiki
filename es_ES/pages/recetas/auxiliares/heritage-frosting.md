@@ -2,12 +2,12 @@
 
 **Ingredientes**
 
-- 3 tablespoons (24 g) de harina de trigo
-- 1/8 teaspoon de sal
-- 3/4 cup (180 ml) de leche entera
-- 3/4 cup (170 g) de mantequilla
-- 3/4 cup (150 g) de azúcar normal o glas
-- 1 teaspoon de extracto natural de vainilla
+- 3 cucharadas (tablespoons o 24 g) de harina de trigo
+- 1/8 cucharadita (teaspoon) de sal
+- 180 ml (3/4 cup) de leche entera
+- 170 g (3/4 cup) de mantequilla
+- 150 g (3/4 cup) de azúcar extrafino (icing sugar)
+- 1 cucharadita (teaspoon) de extracto natural de vainilla
 
 **Preparación**
 

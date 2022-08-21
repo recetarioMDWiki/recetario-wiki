@@ -2,9 +2,9 @@
 
 **Ingredientes**
 
-- 3/4 cup + 1 tablespoon (100 g) de azúcar glas
+- 100 g (3/4 cup + 1 cucharada o tablespoon) de azúcar glas
 - 200 g de queso crema
-- 1/3 cup (80 ml) de nata para montar (35% M.G.)
+- 80 ml (1/3 cup) de nata para montar (35% M.G.)
 
 **Preparación**
 

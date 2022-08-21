@@ -2,11 +2,11 @@
 
 **Ingredientes**
 
-- 4 tablespoons (24 g) de cacao en polvo natural
-- 1 cup (120 g) de azúcar glas
-- 6 tablespoons (84 g) de mantequilla, ablandada
-- 1 tablespoon (15 ml) de leche
-- 1/2 teaspoon de extracto natural de vainilla
+- 4 cucharadas (tablespoons o 24 g) de cacao en polvo natural
+- 120 g (1 cup) de azúcar glas
+- 6 cucharadas (tablespoons o 84 g) de mantequilla, ablandada
+- 1 cucharada (tablespoon o 15 ml) de leche
+- 1/2 cucharadita (teaspoon) de extracto natural de vainilla
 
 **Preparación**
 

@@ -2,10 +2,10 @@
 
 **Ingredientes**
 
-- 1/2 cup (60 g) de azúcar glas
+- 60 g (1/2 cup) de azúcar glas
 - 28 g de queso crema
-- 1 y 1/2 teaspoon de leche
-- 1/8 teaspoon de extracto natural de vainilla
+- 1 y 1/2 cucharaditas (teaspoon) de leche
+- 1/8 cucharadita (teaspoon) de extracto natural de vainilla
 
 **Preparación**
 

@@ -3,9 +3,9 @@
 **Ingredientes**
 
 - 120 g de chocolate negro (70% de cacao)
-- 1 y 1/3 cups (160 g) de azúcar en polvo
-- 2/3 cup (150 g) de mantequilla, a temperatura ambiente
-- 1 y 1/2 teaspoon de extracto natural de vainilla
+- 160 g (1 y 1/3 cups) de azúcar en polvo
+- 150 g (2/3 cup) de mantequilla, a temperatura ambiente
+- 1 y 1/2 cucharaditas (teaspoon) de extracto natural de vainilla
 
 **Preparación**
 
