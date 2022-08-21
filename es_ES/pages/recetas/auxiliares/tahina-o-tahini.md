@@ -2,9 +2,9 @@
 
 **Ingredientes**
 
-- 1 cup (90 g) de sésamo tostado
-- 1/4 cup (60 ml) de aceite de oliva virgen extra
-- 1/8 teaspoon de sal
+- 90 g (1 cup) de sésamo tostado
+- 60 ml (1/4 cup) de aceite de oliva virgen extra
+- 1/8 cucharadita (teaspoon) de sal
 
 **Preparación**
 

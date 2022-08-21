@@ -7,6 +7,7 @@
 * [Compota de manzana - Applesauce](../recetas/auxiliares/compota-de-manzana-applesauce.md)
 * [Cream Cheese Frosting - Cobertura de crema de queso](../recetas/auxiliares/cream-cheese-frosting-cobertura-de-crema-de-queso.md)
 * [Cream Cheese Icing - Glaseado de crema de queso](../recetas/auxiliares/cream-cheese-icing-glaseado-de-crema-de-queso.md)
+* [Crema de mantequilla francesa](../recetas/auxiliares/crema-mantequilla-francesa.md)
 * [Crema de trufa](../recetas/auxiliares/crema-de-trufa.md)
 * [Crema pastelera](../recetas/auxiliares/crema-pastelera.md)
 * [Heritage Frosting](../recetas/auxiliares/heritage-frosting.md)

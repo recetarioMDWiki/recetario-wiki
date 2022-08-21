@@ -17,7 +17,7 @@ En el vaso de la batidora, ponemos el huevo, un pellizco de sal, un poco de zumo
 
 La receta original del alioli sólo lleva ajo y aceite. Esta es una variación que es más una mayonesa de ajo y perejil.
 
-A mí me gusta suave y por eso le echo sólo un diente de ajo. Si os gusta más fuerte, podéis añadir otro diente más."
+A mí me gusta suave y por eso le echo sólo un diente de ajo. Si os gusta más fuerte, podéis añadir otro diente más.
 
 **Recetas que utilizan salsa ali-oli**
 

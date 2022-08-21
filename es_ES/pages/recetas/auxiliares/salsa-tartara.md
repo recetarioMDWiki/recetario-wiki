@@ -2,12 +2,18 @@
 
 **Ingredientes**
 
-- [Mayonesa](mayonesa.md)
 - 20-25 g de cebolla
 - 10-15 g de alcaparras
 - 20-25 g de pepinillos en vinagre
 - 1 huevo duro
 - 1 y 1/2 cucharaditas de mostaza
+
+*Para la [mayonesa](mayonesa.md)*
+
+- 1 huevo
+- Una pizca de sal
+- 200 ml de aceite de girasol
+- Un poco de zumo de limón o vinagre
 
 **Preparación**
 
