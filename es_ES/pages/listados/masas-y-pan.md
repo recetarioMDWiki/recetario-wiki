@@ -10,7 +10,6 @@
 ## M
 
 * [Masa para pizza](../recetas/masas-y-pan/masa-para-pizza.md)
-* [Masa quebrada](../recetas/masas-y-pan/masa-quebrada.md)
 
 - - -
 

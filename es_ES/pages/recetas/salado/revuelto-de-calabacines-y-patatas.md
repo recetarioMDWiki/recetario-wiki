@@ -8,7 +8,6 @@
 - 2 o 3 patatas
 - Sal
 - 2 huevos L
-- Queso rallado (opcional)
 
 **Preparación**
 

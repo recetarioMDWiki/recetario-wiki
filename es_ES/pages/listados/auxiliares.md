@@ -10,6 +10,7 @@
 * [Crema de trufa](../recetas/auxiliares/crema-de-trufa.md)
 * [Crema pastelera](../recetas/auxiliares/crema-pastelera.md)
 * [Heritage Frosting](../recetas/auxiliares/heritage-frosting.md)
+* [Masa quebrada](../recetas/auxiliares/masa-quebrada.md)
 * [Puré de calabaza casero](../recetas/auxiliares/pure-de-calabaza-casero.md)
 * [Vanilla Buttercream Frosting - Cobertura de buttercream de vainilla](../recetas/auxiliares/vanilla-buttercream-frosting-cobertura-de-buttercream-de-vainilla.md)
 * [Whipped Cream Cheese Frosting](../recetas/auxiliares/whipped-cream-cheese-frosting.md)
@@ -19,6 +20,7 @@
 ## Salado
 
 * [Guacamole](../recetas/auxiliares/guacamole.md)
+* [Masa quebrada](../recetas/auxiliares/masa-quebrada.md)
 * [Mayonesa](../recetas/auxiliares/mayonesa.md)
 * [Salsa agridulce](../recetas/auxiliares/salsa-agridulce.md)
 * [Salsa ali-oli](../recetas/auxiliares/salsa-ali-oli.md)
