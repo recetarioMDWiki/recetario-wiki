@@ -76,7 +76,7 @@
 ## L
 
 * [Layer Cake de Kinder Bueno](../recetas/dulce/layer-cake-de-kinder-bueno.md)
-* [Layer Carrot Cake](../recetas/dulce/layer-carrot-cake-tarta-zanahoria.md)
+* [Layer Carrot Cake - Tarta de zanahoria](../recetas/dulce/layer-carrot-cake-tarta-zanahoria.md)
 * [Lotus Banana Bread - Pan de plátano y Lotus](../recetas/dulce/lotus-banana-bread-pan-de-platano-y-lotus.md)
 
 - - -
