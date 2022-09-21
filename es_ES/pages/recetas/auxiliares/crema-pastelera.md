@@ -1,5 +1,7 @@
 ## Crema pastelera
 
+![Crema pastelera](../../uploads/images/crema-pastelera.jpg "Crema pastelera")
+
 **Ingredientes**
 
 - 500 ml de leche entera 
