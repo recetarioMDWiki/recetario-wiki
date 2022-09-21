@@ -1,6 +1,6 @@
-##Layer Carrot Cake - Tarta de zanahoria
+##Carrot Cake - Tarta de zanahoria
 
-![Layer Carrot Cake - Tarta de zanahoria](../../uploads/images/layer-carrot-cake-tarta-zanahoria.jpg "Layer Carrot Cake - Tarta de zanahoria")
+![Carrot Cake - Tarta de zanahoria](../../uploads/images/carrot-cake-tarta-zanahoria.jpg "Carrot Cake - Tarta de zanahoria")
 
 **Ingredientes**
 
