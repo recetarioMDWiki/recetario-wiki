@@ -26,7 +26,7 @@ Preparamos el molde de 20x20 cm engrasándolo y forrándolo con papel de horno. 
 
 Cuando la mezcla de chocolate esté a temperatura ambiente, vamos añadiendo los huevos, de uno en uno y mezclando bien antes de añadir el siguiente. Agregamos el extracto de vainilla y mezclamos.
 
-Por otro lado, tamizamos en un cuento la harina, la sal (y la levadura si queremos). Añadimos esta mezcla a la anterior y batimos suavemente hasta que apenas queden unos restos visibles de harina.
+Por otro lado, tamizamos en un cuenco la harina, la sal (y la levadura si queremos). Añadimos esta mezcla a la anterior y batimos suavemente hasta que apenas queden unos restos visibles de harina.
 
 Por último, añadimos las nueces troceadas y mezclamos para que queden bien repartidas.
 
@@ -36,7 +36,7 @@ Retiramos del horno y dejamos enfriar dentro del molde sobre una rejilla. Cuando
 
 **Notas**
 
-Si lo queremos más intenso podemos utilizar solo chocolate al 70% de cacao, pondríamos 150 g.
+Si lo queremos más intenso podemos utilizar sólo chocolate al 70% de cacao, pondríamos 150 g.
 
 Podemos añadir 1/4 cucharadita (teaspoon) de levadura química si nos gusta con una textura más esponjosa, como de bizcocho. Lo añadiríamos junto con la harina.
 

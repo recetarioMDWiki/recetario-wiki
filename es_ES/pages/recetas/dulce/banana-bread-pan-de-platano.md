@@ -26,7 +26,7 @@ En otro bol machacamos los plátanos y añadimos los huevos, la mantequilla y el
 
 Volcamos los ingredientes húmedos al bol de ingredientes secos y con una espátula o cuchara de madera, mezclamos lo justo, no importa si quedan grumos. Si mezclamos en exceso quedará una textura gomosa. Pasamos la mezcla al molde teníamos preparado y llevamos al horno 55-60 minutos o hasta que esté dorado y al pincharlo con una varilla ésta salga limpia. Lo sacamos y dejamos enfriar sobre una rejilla.
 
-Podemos tomarlo caliente o a temperatura ambiente.
+Podemos tomarlo templado o a temperatura ambiente.
 
 **Notas**
 
