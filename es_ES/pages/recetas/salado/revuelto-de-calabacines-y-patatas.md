@@ -1,5 +1,7 @@
 ## Revuelto de calabacines y patatas
 
+![Revuelto de calabacines y patatas](../../uploads/images/revuelto-de-calabacines-y-patatas.jpg "Revuelto de calabacines y patatas")
+
 **Ingredientes**
 
 - Media cebolla

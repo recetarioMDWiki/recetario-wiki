@@ -135,6 +135,12 @@
 * [Rollitos suecos de canela](../recetas/dulce/rollitos-suecos-canela.md)
 * [Roscón de Reyes](../recetas/dulce/roscon-de-reyes.md)
 
+- - - 
+
+## S
+
+* [Speculoos Bundt Cake](../recetas/dulce/speculoos-bundt-cake.md)
+
 - - -
 
 ## T
