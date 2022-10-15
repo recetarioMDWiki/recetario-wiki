@@ -149,6 +149,7 @@
 * [Tarta de chocolate con galletas Oreo](../recetas/dulce/tarta-de-chocolate-con-galletas-oreo.md)
 * [Tarta de galletas, chocolate y crema pastelera](../recetas/dulce/tarta-de-galletas-chocolate-y-crema-pastelera.md)
 * [Tarta de queso](../recetas/dulce/tarta-de-queso.md)
+* [Tarta mousse de crema pastelera](../recetas/dulce/tarta-mousse-crema-pastelera.md)
 * [Tarta mousse de queso y melocotón](../recetas/dulce/tarta-mousse-de-queso-y-melocoton.md)
 * [Torrijas de leche](../recetas/dulce/torrijas-de-leche.md)
 * [Tortitas americanas - Buttermilk Pancakes](../recetas/dulce/tortitas-americanas-buttermilk-pancakes.md)
