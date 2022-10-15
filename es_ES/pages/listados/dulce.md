@@ -58,6 +58,7 @@
 * [Gachas de avena](../recetas/dulce/gachas-de-avena.md)
 * [Galletas](../recetas/dulce/galletas.md)
 * [Galletas con pistola](../recetas/dulce/galletas-con-pistola.md)
+* [Galletas de avena y chocolate](../recetas/dulce/galletas-avena-chocolate.md)
 * [Galletas de canela - Snickerdoodles](../recetas/dulce/galletas-de-canela-snickerdoodles.md)
 * [Galletas de mantequilla estampadas rellenas de crema de chocolate](../recetas/dulce/galletas-de-mantequilla-estampadas-rellenas-de-crema-de-chocolate.md)
 * [Galletas de melaza y jengibre](../recetas/dulce/galletas-de-melaza-y-jengibre.md)
