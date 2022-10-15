@@ -22,4 +22,5 @@
 
 ## Q
 
+* [Quiche de salmón y queso de cabra](../recetas/masas-y-pan/quiche-salmon-queso-cabra.md)
 * [Quiche de trucha y puerros](../recetas/masas-y-pan/quiche-de-trucha-y-puerros.md)
