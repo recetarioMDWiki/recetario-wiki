@@ -146,6 +146,7 @@
 
 ## T
 
+* [Tarta de café y nueces](../recetas/dulce/tarta-cafe-nueces.md)
 * [Tarta de chocolate con galletas Oreo](../recetas/dulce/tarta-de-chocolate-con-galletas-oreo.md)
 * [Tarta de galletas, chocolate y crema pastelera](../recetas/dulce/tarta-de-galletas-chocolate-y-crema-pastelera.md)
 * [Tarta de queso](../recetas/dulce/tarta-de-queso.md)
