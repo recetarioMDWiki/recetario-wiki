@@ -1,4 +1,3 @@
-- [30-minutes-chocolate-cake-for-two.md](dulce/30-minutes-chocolate-cake-for-two.md)
 - [almond-joy-granola-bars.md](dulce/almond-joy-granola-bars.md)
 - [american-pie-tarta-de-manzana-americana.md](dulce/american-pie-tarta-de-manzana-americana.md)
 - [angel-food-cake.md](dulce/angel-food-cake.md)
