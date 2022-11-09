@@ -43,6 +43,7 @@ También podemos aromatizar la leche con piel de naranja; o con una cucharadita 
 
 - [Canutillos de hojaldre](../dulce/canutillos-de-hojaldre.md)
 - [Roscón de Reyes](../dulce/roscon-de-reyes.md)
+- [Roscón de Reyes - Otra versión](../dulce/roscon-reyes-otra-version.md)
 - [Tarta de galletas, chocolate y crema pastelera](../dulce/tarta-de-galletas-chocolate-y-crema-pastelera.md)
 
 **Receta de:** DeNIKAtessen y Sophie Bakery

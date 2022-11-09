@@ -141,6 +141,7 @@
 * [Red Velvet Bundt Cake](../recetas/dulce/red-velvet-bundt-cake.md)
 * [Rollitos suecos de canela](../recetas/dulce/rollitos-suecos-canela.md)
 * [Roscón de Reyes](../recetas/dulce/roscon-de-reyes.md)
+* [Roscón de Reyes - Otra versión](../recetas/dulce/roscon-reyes-otra-version.md)
 
 - - - 
 
