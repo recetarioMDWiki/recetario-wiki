@@ -33,8 +33,10 @@ Las semillas podemos utilizarlas tostadas en otras recetas.
 
 **Recetas que utilizan puré de calabaza**
 
+- [Brownie de calabaza](../dulce/brownie-calabaza.md)
 - [Bundt Cake de calabaza y chocolate negro](../dulce/bundt-cake-de-calabaza-y-chocolate-negro.md)
 - [Muffins de calabaza y manzana](../dulce/muffins-de-calabaza-y-manzana.md)
 - [Pumpkin and Banana Bread - Pan de calabaza y plátano](../dulce/pumpkin-and-banana-bread-pan-de-calabaza-y-platano.md)
+- [Sirope de Pumpkin Spice Latte](../dulce/sirope-pumpkin-spice-latte.md)
 
 **Receta de:** [Pemberley Cup & Cakes](http://pemberleycupandcakes.com/2014/08/12/pure-de-calabaza-casero/)
