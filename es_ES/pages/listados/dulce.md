@@ -21,6 +21,7 @@
 * [Bizcocho mármol o marmolado](../recetas/dulce/bizcocho-marmol-o-marmolado.md)
 * [Brioche de naranja](../recetas/dulce/brioche-naranja.md)
 * [Brownie](../recetas/dulce/brownie.md)
+* [Brownie de calabaza](../recetas/dulce/brownie-calabaza.md)
 * [Brownie de plátano y chocolate con leche](../recetas/dulce/brownie-de-platano-y-chocolate-con-leche.md)
 * [Bundt Cake de calabaza y chocolate negro](../recetas/dulce/bundt-cake-de-calabaza-y-chocolate-negro.md)
 * [Bundt Cake de sirope de arce y nueces pecanas](../recetas/dulce/bundt-cake-de-sirope-de-arce-y-nueces-pecanas.md)
@@ -147,6 +148,7 @@
 
 ## S
 
+* [Sirope de Pumpkin Spice Latte](../recetas/dulce/sirope-pumpkin-spice-latte.md)
 * [Speculoos Bundt Cake](../recetas/dulce/speculoos-bundt-cake.md)
 
 - - -

@@ -12,6 +12,7 @@
 * [Crema pastelera](../recetas/auxiliares/crema-pastelera.md)
 * [Heritage Frosting](../recetas/auxiliares/heritage-frosting.md)
 * [Masa quebrada](../recetas/auxiliares/masa-quebrada.md)
+* [Pumpkin Pie Species - Mezcla de especias para Pumpkin Pie](../recetas/auxiliares/pumpkin-pie-species.md)
 * [Puré de calabaza casero](../recetas/auxiliares/pure-de-calabaza-casero.md)
 * [Vanilla Buttercream Frosting - Cobertura de buttercream de vainilla](../recetas/auxiliares/vanilla-buttercream-frosting-cobertura-de-buttercream-de-vainilla.md)
 * [Whipped Cream Cheese Frosting](../recetas/auxiliares/whipped-cream-cheese-frosting.md)
