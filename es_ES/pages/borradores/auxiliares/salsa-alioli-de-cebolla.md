@@ -11,8 +11,10 @@
 
 **Preparación**
 
-Cortamos dos dientes de ajo por la mitad y doramos un poco con el aceite de oliva y la cebolla cortada en juliana hasta dejarla bien pochada a fuego lento sin que se queme.
-Cuando esté listo la cebolla dejarla enfriar un poco y ponerla en el vaso de la batidora, junto con el huevo, 1/2 diente de ajo crudo y la sal, triturarlo todo e ir incorporando el aceite de girasol poco a poco hasta que quede montada como la mayonesa.
+Cortamos dos dientes de ajo por la mitad y doramos un poco con el aceite de oliva y la cebolla cortada en juliana, hasta dejarla bien pochada a fuego lento sin que se queme.
+
+Cuando esté lista la cebolla, dejarla enfriar un poco y ponerla en el vaso de la batidora, junto con el huevo, 1/2 diente de ajo crudo y la sal. Triturarlo todo e ir incorporando el aceite de girasol poco a poco hasta que quede montada como la mayonesa.
+
 Si queremos que pique más podemos más ajo crudo, según nuestro gusto.
 
 **Receta original de:** Joaquín Martín

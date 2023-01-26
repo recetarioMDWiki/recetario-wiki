@@ -2,12 +2,12 @@
 
 **Ingredientes**
 
-5 limones
-2 limas
-400 ml de agua
-100 g de azúcar
-20 g de ralladura de limón
-10 hielos
+- 5 limones
+- 2 limas
+- 400 ml de agua
+- 100 g de azúcar
+- 20 g de ralladura de limón
+- 10 hielos
 
 **Preparación**
 

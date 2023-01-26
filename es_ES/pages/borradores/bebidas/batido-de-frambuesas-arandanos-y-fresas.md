@@ -8,7 +8,7 @@
 - 300 ml de leche semidesnatada
 - 125 g de yogur tipo griego
 - 1 vaina de vainilla
-- 1 cucharada de azúcar moreno
+- 1 cucharada (tablespoon) de azúcar moreno
 
 **Preparación**
 

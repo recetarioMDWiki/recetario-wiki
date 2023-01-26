@@ -4,16 +4,16 @@
 
 - 4-5 bolsitas de té negro o verde
 - 1 rama de menta
-- 1/2 cucharadita de semillas de hinojo (en su defecto, anís en grano)
+- 1/2 cucharadita (teaspoon) de semillas de hinojo (en su defecto, anís en grano)
 - 1 lima
-- 6-8 cucharaditas de miel (o azúcar moreno)
+- 6-8 cucharaditas (teaspoons) de miel (o azúcar moreno)
 - 1 litro de agua mineral
 
 **Preparación**
 
-1. Poner el agua a calentar. Cuando hierva, retirarla del fuego e incorporar el té, la menta, el hinojo y la miel. Dejarlo cuatro minutos y retirar el té. Un par de minutos después colar el líquido y dejarlo enfriar.
+Poner el agua a calentar. Cuando hierva, retirarla del fuego e incorporar el té, la menta, el hinojo y la miel. Dejarlo cuatro minutos y retirar el té. Un par de minutos después colar el líquido y dejarlo enfriar.
 
-2. Cortar en rodajas media lima e incorporarlas al té aplastándolas un poco. Meterlo en la nevera y servirlo muy frío, con hielo y más lima si se quiere.
+Cortar en rodajas media lima e incorporarlas al té aplastándolas un poco. Meterlo en la nevera y servirlo muy frío, con hielo y más lima si se quiere.
 
 **Notas**
 

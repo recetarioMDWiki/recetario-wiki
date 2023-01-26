@@ -19,7 +19,7 @@ Una vez que el bol se ha enfriado, podemos ir añadiendo la mantequilla poco a p
 
 Podemos añadir pasta de avellana italiana, Nutella, pasta de vainilla, Nocilla, chocolate blanco o negro fundido, etc. y cambiar el sabor de la crema.
 
-**Recetas que utilizan crema pastelera**
+**Recetas que utilizan crema de mantequilla francesa**
 
 - [Cupcakes de Kinder Bueno](../dulce/cupcakes-kinder-bueno.md)
 
