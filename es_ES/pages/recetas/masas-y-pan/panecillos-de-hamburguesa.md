@@ -2,39 +2,36 @@
 
 **Ingredientes**
 
-- 240 ml (1 cup) de leche semidesnatada
-- 120 ml (1/2 cup) de agua
-- 55 g (1/4 cup) de margarina
-- 560 g (4 y 1/2 cups) de harina de fuerza
-- 9 g de levadura seca de panadería
-- 2 tablespoons (25 g) de azúcar
-- 1 y 1/2 teaspoon (9 g) de sal
-- 1 huevo mediano (50 g)
+- 375 g de harina panificable (o mitad fuerza mitad común)
+- 75 ml de leche tibia
+- 125 ml de agua tibia
+- 4 g de levadura seca (o 12 g de levadura fresca)
+- 1 huevo
+- 1 cucharada (tablespoon) de azúcar
+- 1 + 1/2 cucharaditas (teaspoons) de sal
+- 1 cucharada (tablespoon) de aceite de oliva
 
 *Para pintarlos*
 
-- 1 huevo
-- 1 tablespoon (15 ml) de agua
+- Leche
 - Semillas de sésamo
 
 **Preparación**
 
-En un cazo pequeño, calentamos la leche, el agua y la margarina hasta que estén calientes (50º C).
+En el bol de la amasadora colocamos la harina con la levadura, el azúcar y la sal. En otro bol mezclamos bien el agua con la leche, el aceite y el huevo. Incorporamos la mezcla a nuestra amasadora y amasamos con el gancho a velocidad media-baja durante 8-10 minutos, hasta tener una masa muy elástica y homogénea.
 
-En un bol grande mezclamos 220 g (1 y 3/4 cups) de harina, la levadura, el azúcar y la sal. Añadimos la mezcla de leche, el huevo y mezclamos. Vamos añadiendo el resto de la harina, 1/2 cup (65 g) cada vez, mezclando bien después de cada adición. Cuando la masa esté compacta, la ponemos en una superficie sin enharinar y amasar, con la técnica de Richard Bertinet, hasta que quede una masa suave y elástica, unos 10 minutos aproximadamente.
+Cuando la masa esté lista, la pasaremos a un bol previamente engrasado y la dejaremos fermentar durante 2 horas o hasta que haya doblado su volumen, tapado con film también engrasado.
 
-Dividimos la masa en 12 piezas, formamos bolas y las ponemos en una bandeja cubierta con papel de horno. Aplastamos ligeramente las bolas (si no subirán demasiado) y dejamos fermentar en un lugar cálido durante 1 hora o hasta que hayan doblado su volumen.
+Pasado ese tiempo la desgasificamos un poco y dividimos en 6 porciones, y boleamos cada porción con cuidado de que la unión quede en la base de la bola. Dejamos fermentar de nuevo cubiertas con un film engrasado en torno a 2 horas, hasta que hayan crecido visiblemente.
 
-Precalentamos el horno a 200º C. Mezclamos el huevo con el agua y pintamos la superficie de los panecillos. Espolvoreamos con las semillas de sésamo y horneamos durante 10-15 minutos. Retiramos del horno y dejamos enfriar sobre una rejilla.
+Precalentamos el horno a 220 ºC. Pintamos los panecillos con leche, espolvoreamos con el sésamo y metemos al horno. Bajamos la temperatura a 200 ºC y horneamos 20 minutos o hasta que estén doraditos.
 
 **Notas**
 
-Podemos obtener unos 12 panecillos, pero podemos dividir la masa en las porciones que queramos, más grandes o más pequeñas, para ajustarnos al tamaño de nuestra hamburguesa.
-
-Podéis ver la técnica de amasado de Richar Bertinet [aquí](https://www.youtube.com/watch?v=OJ40XQgpFs4).
+En caso de amasar a mano, empezaremos con una espátula de madera y después amasaremos sobre una superficie engrasada con aceite durante 3-4 minutos (las manos también con aceite), y haremos 2 o 3 reposos de 10 minutos para facilitar la labor (durante los reposos podemos cubrir la masa con un bol o trapo).
 
 **Recetas que utilizan panecillos de hamburguesa**
 
 - [Hamburguesas caseras](../salado/hamburguesas-caseras.md)
 
-**Receta de:** DeNIKAtessen
+**Receta de:** Alma Obregón
