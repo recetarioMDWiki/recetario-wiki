@@ -1,5 +1,7 @@
 ## Menestra de verduras
 
+![Menestra de verduras](../../uploads/images/menestra-verduras.jpg "Menestra de verduras")
+
 **Ingredientes**
 
 - 1 patata grande

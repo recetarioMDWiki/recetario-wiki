@@ -1,5 +1,7 @@
 ## Panecillos de hamburguesa
 
+![Panecillos de hamburguesa](../../uploads/images/panecillos-hamburguesa.jpg "Panecillos de hamburguesa")
+
 **Ingredientes**
 
 - 375 g de harina panificable (o mitad fuerza mitad común)
