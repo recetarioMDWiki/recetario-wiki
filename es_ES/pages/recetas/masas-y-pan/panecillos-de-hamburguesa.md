@@ -34,4 +34,4 @@ En caso de amasar a mano, empezaremos con una espátula de madera y después ama
 
 - [Hamburguesas caseras](../salado/hamburguesas-caseras.md)
 
-**Receta de:** Alma Obregón
+**Receta de:** [Alma Obregón](https://www.instagram.com/p/CJ9JqsAMVSq/)
