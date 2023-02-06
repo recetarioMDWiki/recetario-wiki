@@ -15,6 +15,7 @@
 
 ## P
 
+* [Pan de molde integral](../recetas/masas-y-pan/pan-molde-integral.md)
 * [Panecillos de hamburguesa](../recetas/masas-y-pan/panecillos-de-hamburguesa.md)
 * [Pizza Monkey Bread](../recetas/masas-y-pan/pizza-monkey-bread.md)
 
