@@ -1,5 +1,7 @@
 ## Pasta a la corsaria
 
+![Pasta a la corsaria](../../uploads/images/pasta-corsaria.jpg "Pasta a la corsaria")
+
 **Ingredientes**
 
 - 1 diente de ajo
