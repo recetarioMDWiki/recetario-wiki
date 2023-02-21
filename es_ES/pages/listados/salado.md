@@ -138,6 +138,7 @@
 * [Pescado al horno con patatas](../recetas/salado/pescado-al-horno-con-patatas.md)
 * [Pescado en blanco](../recetas/salado/pescado-en-blanco.md)
 * [Pisto](../recetas/salado/pisto.md)
+* [Pollo al horno con limón y ajo](../recetas/salado/pollo-horno-limon-ajo.md)
 * [Pollo al limón](../recetas/salado/pollo-al-limon.md)
 * [Pollo en salsa](../recetas/salado/pollo-en-salsa.md)
 * [Potaje de garbanzos y acelgas](../recetas/salado/potaje-de-garbanzos-y-acelgas.md)
