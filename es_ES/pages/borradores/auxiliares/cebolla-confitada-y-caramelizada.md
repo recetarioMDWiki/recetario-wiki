@@ -16,4 +16,4 @@ Para acelerar el proceso y conseguir caramelizar la cebolla en una media hora ap
 
 Seguimos reduciendo la cebolla lentamente, removiendo de vez en cuando hasta que la cebolla se va oscureciendo al transformarse sus azúcares en caramelo y mientras el agua se va evaporando. Al cabo de 30 minutos la cebolla está perfectamente caramelizada y lista para su uso. Eso sí, el kilo de cebollas ha reducido tanto de tamaño que apenas rellenaremos medio tarro de mermelada.
 
-**Receta de:**[Directo al paladar](https://www.directoalpaladar.com/recetas-de-legumbres-y-verduras/receta-facil-para-hacer-cebolla-caramelizada)
+**Receta de:** [Directo al paladar](https://www.directoalpaladar.com/recetas-de-legumbres-y-verduras/receta-facil-para-hacer-cebolla-caramelizada)
