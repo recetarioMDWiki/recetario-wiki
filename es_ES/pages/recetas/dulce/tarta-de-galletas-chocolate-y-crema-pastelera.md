@@ -13,6 +13,7 @@
 - 150 g de azúcar glas
 - 100 g de mantequilla sin sal
 - 150 g de chocolate negro (~50%) de repostería
+
 *Para la [crema pastelera](../auxiliares/crema-pastelera.md)*
 
 - 500 ml de leche entera 
