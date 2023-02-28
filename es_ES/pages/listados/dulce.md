@@ -36,6 +36,7 @@
 * [Carrot Cake Cupcakes - Cupcakes de Tarta de zanahoria](../recetas/dulce/carrot-cake-cupcakes-cupcakes-de-tarta-de-zanahoria.md)
 * [Carrot Cake - Tarta de zanahoria](../recetas/dulce/carrot-cake-tarta-zanahoria.md)
 * [Cookies con trocitos de chocolate y avena](../recetas/dulce/cookies-con-trocitos-de-chocolate-y-avena.md)
+* [Cookies de almendra con chocolate negro](../recetas/dulce/cookies-almendra-chocolate-negro.md)
 * [Coquitos o cocadas - Coconut Macaroons](../recetas/dulce/coquitos-o-cocadas-coconut-macaroons.md)
 * [Cupcakes de Kinder Bueno](../recetas/dulce/cupcakes-kinder-bueno.md)
 
@@ -118,6 +119,7 @@
 * [Muffins de salvado de trigo y copos de avena](../recetas/dulce/muffins-de-salvado-de-trigo-y-copos-de-avena.md)
 * [Muffins de yogur griego con trozos de chocolate](../recetas/dulce/muffins-de-yogur-griego-con-trozos-de-chocolate.md)
 * [Muffins integrales bajos en grasa](../recetas/dulce/muffins-integrales-bajos-en-grasa.md)
+* [Muffins Red Velvet Cheesecake](../recetas/dulce/muffins-red-velvet-cheesecake.md)
 
 - - - 
 
