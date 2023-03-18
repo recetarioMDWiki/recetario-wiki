@@ -2,7 +2,7 @@
 
 | Foto | Nombre | Detalles |
 | :--- | :--- | :--- |
-| ![Ablandador de masas](uploads/images/ablandador-masas.jpg "Ablandador de masas") | Ablandador de masas | Marca: Kitchen Craft |
+| ![Ablandador de masas](https://drive.google.com/file/d/1YEUcSQTQDPCvU36Yx76DhFrGMKEPjluA/view?usp=share_link "Ablandador de masas") | Ablandador de masas | Marca: Kitchen Craft |
 | ![Bandeja para cupcakes](uploads/images/bandeja-muffins.JPG "Bandeja para cupcakes") | Bandeja para cupcakes o muffins | Marca: Wilton - Capacidad: 12 huecos de 5cm de base |
 | ![Batidora de varillas](uploads/images/batidora-varillas.jpg "Batidora de varillas") | Batidora de varillas | Marca: KitchenAid |
 | ![Boquillas para manga pastelera](uploads/images/boquillas.jpg "Boquillas para manga pastelera") | Boquillas para manga pastelera | Marca: Wilton - Modelos: 1M, 2D y 6B y adaptador  |
