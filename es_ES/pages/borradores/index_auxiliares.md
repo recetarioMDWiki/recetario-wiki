@@ -2,3 +2,4 @@
 - [crema-de-cacao-y-avellanas.md](auxiliares/crema-de-cacao-y-avellanas.md)
 - [mantequilla-de-cacahuete.md](auxiliares/mantequilla-de-cacahuete.md)
 - [salsa-alioli-de-cebolla.md](auxiliares/salsa-alioli-de-cebolla.md)
+- [salsa-caramelo-salado.md](auxiliares/salsa-caramelo-salado.md)
