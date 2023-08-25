@@ -203,7 +203,6 @@
 - [ensalada-de-pollo-y-salsa-de-soja.md](salado/ensalada-de-pollo-y-salsa-de-soja.md)
 - [ensalada-de-verduras-con-salsa-verde-y-cuscus.md](salado/ensalada-de-verduras-con-salsa-verde-y-cuscus.md)
 - [ensalada-de-zanahoria-y-tahina.md](salado/ensalada-de-zanahoria-y-tahina.md)
-- [ensalada-garbanzos.md](salado/ensalada-garbanzos.md)
 - [ensalada-italiana-de-verduras-asadas.md](salado/ensalada-italiana-de-verduras-asadas.md)
 - [ensalada-rusa-de-patata-con-langostinos.md](salado/ensalada-rusa-de-patata-con-langostinos.md)
 - [ensalada-santa-monica.md](salado/ensalada-santa-monica.md)

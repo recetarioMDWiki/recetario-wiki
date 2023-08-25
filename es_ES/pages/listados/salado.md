@@ -45,6 +45,7 @@
 
 * [Ensalada César](../recetas/salado/ensalada-cesar.md)
 * [Ensalada de arroz](../recetas/salado/ensalada-arroz.md)
+* [Ensalada de garbanzos](../recetas/salado/ensalada-garbanzos.md)
 * [Ensalada de pasta](../recetas/salado/ensalada-de-pasta.md)
 * [Ensalada de patatas con salmón ahumado](../recetas/salado/ensalada-de-patatas-con-salmon-ahumado.md)
 * [Ensalada de tomates, garbanzos y anchoas](../recetas/salado/ensalada-de-tomates-garbanzos-y-anchoas.md)

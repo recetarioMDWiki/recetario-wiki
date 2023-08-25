@@ -1,6 +1,6 @@
 ## Ensalada de garbanzos
 
-![Ensalada de garbanzos](../../uploads/images/titulo.jpg "Ensalada de garbanzos")
+<!--![Ensalada de garbanzos](../../uploads/images/titulo.jpg "Ensalada de garbanzos")-->
 
 **Ingredientes**
 
