@@ -10,6 +10,7 @@
 ## M
 
 * [Masa para pizza](../recetas/masas-y-pan/masa-para-pizza.md)
+* [Masa para pizza con KitchenAid](../recetas/masas-y-pan/masa-pizza-kitchenaid.md)
 
 - - -
 
