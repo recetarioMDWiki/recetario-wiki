@@ -17,7 +17,7 @@
 
 *Para la cobertura*
 
-- 3 cucharadas (tablespoons) de azúcar extrafino (icing sugar)
+- 3 cucharadas (tablespoons) de azúcar glas (icing sugar)
 - 2 cucharadas (tablespoons) de leche
 
 **Preparación**

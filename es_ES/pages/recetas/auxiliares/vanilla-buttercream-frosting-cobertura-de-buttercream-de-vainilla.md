@@ -3,7 +3,7 @@
 **Ingredientes**
 
 - 113 g (1/2 cup) de mantequilla
-- 170-225 g (entre 1 + 1/2 y 2 cups) de azúcar extrafino o icing sugar
+- 170-225 g (entre 1 + 1/2 y 2 cups) de azúcar glas o icing sugar
 - 1 y 1/2 cucharaditas (teaspoon) de extracto natural de vainilla
 - 2-3 cucharadas (tablespoons o 30-45 ml) de leche entera
 
