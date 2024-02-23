@@ -14,7 +14,7 @@
 *Para la masa*
 
 - 60 g de miel
-- 45 ml de aceite de oliva
+- 45 ml de aceite de oliva virgen extra
 - 1 cucharadita (teaspoon) de sal
 - 200 g de harina integral de fuerza
 
