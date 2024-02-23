@@ -12,14 +12,14 @@
 - 2 zanahorias
 - Medio vaso de vino blanco
 - Agua
-- Unos champiñones
+- Champiñones
 
 **Preparación**
 
 Preparamos los filetes de ternera con un poco de sal. Ponemos en una olla rápida un fondito de aceite y calentamos. Pasamos los filetes de ternera brevemente por el aceite caliente, para marcarlos. Los sacamos y los reservamos.
 
-En el mismo aceite añadimos los dientes de ajo fileteados, la cebolla picada y un poco de sal, y hacemos un sofrito. Añadimos la zanahoria pelada y picada. Dejamos que se haga un poco y a continuación añadimos los filetes y el vino. Esperamos que se reduzca el vino, cubrimos de agua, pero no del todo, y cerramos la olla. Dejamos hervir unos 20 minutos, aproximadamente.
+En el mismo aceite añadimos los dientes de ajo fileteados, la cebolla picada y un poco de sal, y hacemos un sofrito. Añadimos la zanahoria pelada y picada. Dejamos que se haga un poco y a continuación añadimos los filetes y el vino. Esperamos que se reduzca el vino, cubrimos de agua, pero no del todo, y cerramos la olla. Dejamos hervir unos 15 minutos, aproximadamente.
 
-Pasado el tiempo, comprobamos que los filetes estén tiernos. Si les falta un poco, volvemos a cerrar la olla y esperamos algo más. Si ya están tiernos, añadimos los champiñones laminados y dejamos que se cocinen, pero ya dejando la olla destapada, cuidando que no se quede seco o se quemará la carne.
+Pasado el tiempo, abrimos la olla. A los filetes debería quedarles algo aún para estar tiernos, pero aprovecharemos para añadir los champiñones laminados y terminar de cocinar todo junto con la olla destapada, cuidando que no se quede seco ni con demasiada agua.
 
 **Receta de:** Elena
