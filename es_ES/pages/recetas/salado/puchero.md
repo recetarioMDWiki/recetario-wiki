@@ -13,19 +13,21 @@
 - Hueso de espinazo
 - Hueso blanco o costilla salada
 
+*Resto de ingredientes*
+
 - 1 vaso de garbanzos
 - Agua
 - 1 zanahoria
 - Sal
 - 1 tomate (opcional)
 - Un trozo de pimiento verde (opcional)
-- 2 puñados/persona de fideos o arroz
+- 2 puñados/persona de fideos o 1 puñado/persona de arroz
 
 **Preparación**
 
 Ponemos los garbanzos en agua la noche anterior.
 
-Llenamos 3/4 de una olla rápida con agua y la ponemos a calentar. Antes de hervir, enjuagamos y echamos los garbanzos y todos los avíos limpios, menos la zanahoria, el tomate, el pimiento y los fideos. Dejamos que espume, retirando la espuma hasta que no salga o salga muy poquito. Añadimos la zanahoria, un poquito de sal y tapamos. Dejamos hervir unos 20 minutos. 
+Llenamos 3/4 de una olla rápida con agua y la ponemos a calentar. Antes de hervir, enjuagamos y echamos los garbanzos y todos los avíos limpios. Dejamos que espume, retirando la espuma hasta que no salga o salga muy poquito. Añadimos la zanahoria, un poquito de sal y tapamos. Dejamos hervir unos 20 minutos. 
 
 Pasado el tiempo, apartamos la olla del fuego, dejamos salir la presión y destapamos. Comprobamos que los garbanzos y la carne estén tiernos. Si no lo están, echamos un poco más de agua y dejamos hervir más de tiempo, pero ya destapado. Si están tiernos pero vemos que hay poco caldo, también podemos echar más agua. 
 
