@@ -1,6 +1,6 @@
-## Pan de molde integral
+## Pan de molde integral con semillas
 
-![Pan de molde integral](../../uploads/images/pan-molde-integral.jpg "Pan de molde integral")
+![Pan de molde integral con semillas](../../uploads/images/pan-molde-integral-semillas.jpg "Pan de molde integral con semillas")
 
 **Ingredientes**
 
