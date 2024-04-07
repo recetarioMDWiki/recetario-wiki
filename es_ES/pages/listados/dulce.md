@@ -113,6 +113,7 @@
 * [Muffins de canela y nuez moscada](../recetas/dulce/muffins-canela-nuez-moscada.md)
 * [Muffins de compota de manzana](../recetas/dulce/muffins-de-compota-de-manzana.md)
 * [Muffins de fresas](../recetas/dulce/muffins-de-fresas.md)
+* [Muffins de limón y semillas de amapola](../recetas/dulce/muffins-de-limon-y-semillas-de-amapola.md)
 * [Muffins de plátano con nueces y chocolate](../recetas/dulce/muffins-de-platano-con-nueces-y-chocolate.md)
 * [Muffins de plátano y avena](../recetas/dulce/muffins-de-platano-y-avena.md)
 * [Muffins de plátano y salvado de avena](../recetas/dulce/muffins-de-platano-y-salvado-de-avena.md)

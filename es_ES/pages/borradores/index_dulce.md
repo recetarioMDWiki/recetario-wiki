@@ -639,7 +639,6 @@
 - [muffins-de-chocolate.md](dulce/muffins-de-chocolate.md)
 - [muffins-de-frutos-rojos.md](dulce/muffins-de-frutos-rojos.md)
 - [muffins-de-galletas-oreo.md](dulce/muffins-de-galletas-oreo.md)
-- [muffins-de-limon-y-semillas-de-amapola.md](dulce/muffins-de-limon-y-semillas-de-amapola.md)
 - [muffins-de-mantequilla-de-cacahuete-con-chocolate.md](dulce/muffins-de-mantequilla-de-cacahuete-con-chocolate.md)
 - [muffins-de-nutella.md](dulce/muffins-de-nutella.md)
 - [muffins-de-pera-y-avellanas.md](dulce/muffins-de-pera-y-avellanas.md)
