@@ -71,6 +71,7 @@
 * [Guisantes con chocos](../recetas/salado/guisantes-con-chocos.md)
 * [Guisantes con huevo](../recetas/salado/guisantes-con-huevo.md)
 * [Gyozas](../recetas/salado/gyozas.md)
+* [Gyozas - Otra versión](../recetas/salado/gyozas-otra-version.md)
 
 - - - 
 
