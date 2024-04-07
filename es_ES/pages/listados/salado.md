@@ -157,6 +157,7 @@
 
 * [Revuelto de calabacines y patatas](../recetas/salado/revuelto-de-calabacines-y-patatas.md)
 * [Revuelto de puerros](../recetas/salado/revuelto-de-puerros.md)
+* [Risotto de langostinos y espárragos trigueros](../recetas/salado/risotto-langostinos-y-trigueros.md)
 
 - - -
 
