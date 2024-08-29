@@ -1,4 +1,4 @@
-## Tortilla de patata
+## Tortilla de verduras
 
 **Ingredientes**
 
