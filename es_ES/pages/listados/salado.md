@@ -100,6 +100,7 @@
 
 ## M
 
+* [Macarrones con cherrys y queso feta](../recetas/salado/macarrones-cherrys-queso-feta.md)
 * [Magro de cerdo guisado con verduras](../recetas/salado/magro-de-cerdo-guisado-con-verduras.md)
 * [Mejillones a la mostaza](../recetas/salado/mejillones-a-la-mostaza.md)
 * [Mejillones al vapor](../recetas/salado/mejillones-al-vapor.md)
