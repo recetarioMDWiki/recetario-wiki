@@ -9,7 +9,6 @@
 - Sal
 - AOVE
 
-
 **Preparación**
 
 En una fuente poner los tomatitos, el queso, chorrito de AOVE, sal y albahaca. Hornear hasta que los cherrys y el queso estén blandos, a 200 ºC (unos 30 min).

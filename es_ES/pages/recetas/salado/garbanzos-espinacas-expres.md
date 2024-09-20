@@ -5,11 +5,10 @@
 - 1 bote de garbanzos con espinacas
 - 1 zanahoria
 - 1 cebolleta
-- 3 cucharadas de [tomate frito casero]()
+- 3 cucharadas de tomate frito casero
 - Pimentón dulce y picante
 - 20 ml de AOVE
 - Sal
-
 
 **Preparación**
 
@@ -22,8 +21,5 @@ Añadir el tomate frito y cocinar unos minutos más.
 Incorporar los garbanzos con espinacas (previamente lavados y escurridos).
 
 Cubrir con agua, añadir sal y cocinar 30 minutos.
-
-**Notas**
-
 
 **Receta de:** Nutrilau

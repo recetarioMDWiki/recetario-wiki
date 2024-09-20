@@ -66,6 +66,7 @@
 ## G
 
 * [Garbanzos con espinacas](../recetas/salado/garbanzos-con-espinacas.md)
+* [Garbanzos con espinacas exprés](../recetas/salado/garbanzos-espinacas-expres.md)
 * [Gazpacho](../recetas/salado/gazpacho.md)
 * [Gratinado de brócoli y boniato](../recetas/salado/gratinado-de-brocoli-y-boniato.md)
 * [Guisantes con chocos](../recetas/salado/guisantes-con-chocos.md)
