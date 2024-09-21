@@ -24,7 +24,7 @@
 
 ## C
 
-* [Calamares encebollados](../recetas/salado/canelones.md)
+* [Calamares encebollados](../recetas/salado/calamares-encebollados.md)
 * [Canelones](../recetas/salado/canelones.md)
 * [Carrillera en salsa](../recetas/salado/carrillera-en-salsa.md)
 * [Cazón con tomate](../recetas/salado/cazon-con-tomate.md)
@@ -129,6 +129,7 @@
 
 * [Paella](../recetas/salado/paella.md)
 * [Pasta a la carbonara](../recetas/salado/pasta-a-la-carbonara.md)
+* [Pasta a la carbonara ligera](../recetas/salado/pasta-carbonara-ligera.md)
 * [Pasta a la corsaria](../recetas/salado/pasta-a-la-corsaria.md)
 * [Pasta a la putanesca](../recetas/salado/pasta-a-la-putanesca.md)
 * [Pasta con paté de verduras](../recetas/salado/pasta-con-pate-de-verduras.md)
