@@ -1,4 +1,4 @@
-## Pasta carbonara
+## Pasta a la carbonara ligera
 
 **Ingredientes**
 
