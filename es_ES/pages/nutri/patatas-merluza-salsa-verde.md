@@ -32,4 +32,4 @@ Cocinar a fuego medio alto para que termine de cocinarse y coja espesor el caldo
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/ClLSw61qgBo/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

@@ -28,4 +28,4 @@ Puedes conservar la fritada que te sobre en la nevera o congelador.
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CS7Af7mDebG/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

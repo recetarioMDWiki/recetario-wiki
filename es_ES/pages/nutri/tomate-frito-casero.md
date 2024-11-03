@@ -31,4 +31,4 @@ Puedes conservarlo en el congelador, en botes de cristal, y sacar según vayas n
 Es buena opción para añadir a los platos de pasta o arroz.
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CW3uI7xrSK_/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

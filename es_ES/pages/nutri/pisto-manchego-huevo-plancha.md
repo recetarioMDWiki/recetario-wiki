@@ -33,4 +33,4 @@ Puedes comer este plato acompañado de 1-2 rebanadas de pan wasa para conseguir 
 
 Añade el pisto a los platos para lograr un consumo diario de verduras adecuado, lo ideal son 300-400 g al día.
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CUpdET8qN5e/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

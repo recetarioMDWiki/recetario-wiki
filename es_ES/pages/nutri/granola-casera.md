@@ -33,4 +33,4 @@ La cantidad para la población media sería 2-3 cucharadas al día.
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CYd5OysqnkE/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

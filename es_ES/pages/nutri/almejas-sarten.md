@@ -22,4 +22,4 @@ Agregar las almejas, espolvorear con perejil y cocinar hasta que se abran.
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CYCcfBdr-85/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

@@ -16,4 +16,4 @@ Poner a remojo las semillas de chía en la bebida vegetal la noche anterior.
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CQsSySYFuJD/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

@@ -33,4 +33,4 @@ Después, añadir las verduras, el pollo, unas gotas de limón y listo.
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CJTqNwxnHgW/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

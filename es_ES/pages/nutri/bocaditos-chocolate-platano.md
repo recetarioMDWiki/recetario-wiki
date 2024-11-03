@@ -19,4 +19,4 @@ Mételos en el congelador durante una hora.
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CGuZqiBH8gF/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

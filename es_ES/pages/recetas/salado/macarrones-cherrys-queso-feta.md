@@ -21,4 +21,4 @@ Añadir a la pasta cocida y decorar con albahaca fresca.
 
 Para 2 personas.
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CMc2DD1FCv3/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

@@ -2,12 +2,11 @@
 
 **Ingredientes**
 
-- 4 contramuslos de pollo deshuesados.
+- 4 contramuslos de pollo deshuesados
 - 2 dientes de ajo
 - Perejil fresco
 - 10 ml de AOVE
 - Sal
-
 
 **Preparación**
 
@@ -19,7 +18,4 @@ En una sartén antiadherente, calentar el AOVE y añadir el pollo.
 
 Poner primero a fuego medio-alto y una vez dorado por todas partes, bajar el fuego para terminar de hacer.
 
-**Notas**
-
-
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CawUuSoOGv0/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

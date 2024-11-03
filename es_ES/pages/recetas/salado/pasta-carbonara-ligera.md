@@ -28,4 +28,4 @@ Cocer la pasta.
 
 Añadir la pasta a la carbonara y servir.
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/Ck_NyzrKIEo/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

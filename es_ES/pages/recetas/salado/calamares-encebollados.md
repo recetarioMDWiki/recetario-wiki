@@ -27,4 +27,4 @@ Añadir el vino, dejar que se evapore el alcohol y cocinar 10-15 minutos, y si s
 
 Puedes acompañar el plato con un poquito de arroz blanco. Al llevar tanta cebolla, la ración de verduras estaría cubierta.
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/Ck_NWqAqDKM/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

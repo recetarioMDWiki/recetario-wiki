@@ -22,4 +22,4 @@ Incorporar los garbanzos con espinacas (previamente lavados y escurridos).
 
 Cubrir con agua, añadir sal y cocinar 30 minutos.
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/ClyVPk4qkSC/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

@@ -18,4 +18,4 @@ Por último, agrega los tallarines, remueve bien y servir.
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/reel/C7w_qCnu-oT/?utm_source=ig_web_copy_link)

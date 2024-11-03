@@ -31,4 +31,4 @@ Reposar una hora.
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CTX6-mMjkSN/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)

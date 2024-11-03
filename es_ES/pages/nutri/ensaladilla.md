@@ -20,4 +20,4 @@ Aguanta cuatro días sin problema en la nevera.
 **Notas**
 
 
-**Receta de:** Nutrilau
+**Receta de:** [Nutrilau](https://www.instagram.com/p/CH5VHIxngIk/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
