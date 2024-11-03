@@ -109,6 +109,7 @@
 * [Mejillones al vapor](../recetas/salado/mejillones-al-vapor.md)
 * [Menestra de verduras](../recetas/salado/menestra-de-verduras.md)
 * [Merluza a la gallega](../recetas/salado/merluza-gallega.md)
+* [Merluza a la vasca con espárragos](../recetas/salado/merluza-vasca-esparragos.md)
 * [Merluza con champiñones y cebolla](../recetas/salado/merluza-con-champinones-cebolla.md)
 * [Merluza en salsa de pimientos del piquillo](../recetas/salado/merluza-en-salsa-de-pimientos-del-piquillo.md)
 * [Merluza en salsa verde](../recetas/salado/merluza-en-salsa-verde.md)
