@@ -80,6 +80,7 @@
 
 ## H
 
+* [Hamburguesa de pollo casera](../recetas/salado/hamburguesa-pollo-casera.md)
 * [Hamburguesas caseras](../recetas/salado/hamburguesas-caseras.md)
 * [Hummus](../recetas/salado/hummus.md)
 * [Hummus de habichuelas blancas y tomates secos](../recetas/salado/hummus-de-habichuelas-blancas-y-tomates-secos.md)
