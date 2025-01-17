@@ -26,6 +26,7 @@
 - [menestra-verduras.md](nutrilau/menestra-verduras.md)
 - [paella-marisco.md](nutrilau/paella-marisco.md)
 - [pasta-ajillo-langostinos-champinones.md](nutrilau/pasta-ajillo-langostinos-champinones.md)
+- [pasta-bolonesa.md](nutrilau/pasta-bolonesa.md)
 - [patatas-merluza-salsa-verde.md](nutrilau/patatas-merluza-salsa-verde.md)
 - [patatas-panaderas.md](nutrilau/patatas-panaderas.md)
 - [pisto-manchego-huevo-plancha.md](nutrilau/pisto-manchego-huevo-plancha.md)
