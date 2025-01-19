@@ -25,7 +25,6 @@
 
 ## C
 
-* [Calamares encebollados](../recetas/salado/calamares-encebollados.md)
 * [Canelones](../recetas/salado/canelones.md)
 * [Carrillera en salsa](../recetas/salado/carrillera-en-salsa.md)
 * [Cazón con tomate](../recetas/salado/cazon-con-tomate.md)
