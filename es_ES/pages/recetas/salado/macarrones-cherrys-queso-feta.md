@@ -4,7 +4,7 @@
 
 - 350 g de tomates cherry
 - 80g de queso feta
-- 120 g de pasta
+- 130 g de pasta
 - Albahaca seca y/o fresca
 - Sal
 - AOVE
