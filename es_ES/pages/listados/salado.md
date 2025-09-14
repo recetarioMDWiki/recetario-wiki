@@ -38,6 +38,7 @@
 * [Crema de calabacín](../recetas/salado/crema-de-calabacin.md)
 * [Crema de calabaza](../recetas/salado/crema-de-calabaza.md)
 * [Crema de pimientos del piquillo y habichuelas blancas](../recetas/salado/crema-pimientos-piquillo-habichuelas-blancas.md)
+* [Crema de queso feta y tomates cherry](../recetas/salado/crema-queso-feta-tomates-cherry.md)
 * [Croquetas](../recetas/salado/croquetas.md)
 
 - - -
@@ -53,7 +54,7 @@
 * [Ensalada griega](../recetas/salado/ensalada-griega.md)
 * [Ensalada pantesca con caballa](../recetas/salado/ensalada-pantesca-con-caballa.md)
 * [Ensaladilla](../recetas/salado/ensaladilla.md)
-* [Espaguetis con pez espada, berenjena y tomatitos](../recetas/salado/espaguetis-con-pez-espada-berenjena-y-tomatitos.md)
+* [Espaguetis con pez espada, berenjena y tomates cherry](../recetas/salado/espaguetis-con-pez-espada-berenjena-y-tomates-cherry.md)
 
 - - - 
 

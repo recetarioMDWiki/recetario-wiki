@@ -2,8 +2,8 @@
 
 **Ingredientes**
 
-- 2 litros de tomate triturado
-- 4 cebollas dulces
+- 3 litros de tomate triturado
+- 1 kg de cebollas dulces
 - 4 cucharadas de AOVE
 - Sal
 

@@ -166,5 +166,6 @@
 * [Tarta mousse de crema pastelera](../recetas/dulce/tarta-mousse-crema-pastelera.md)
 * [Tarta mousse de queso y melocotón](../recetas/dulce/tarta-mousse-de-queso-y-melocoton.md)
 * [Tarta San Marcos](../recetas/dulce/tarta-san-marcos.md)
+* [Tiramisú en vasitos](../recetas/dulce/tiramisu-vasitos.md)
 * [Torrijas de leche](../recetas/dulce/torrijas-de-leche.md)
 * [Tortitas americanas - Buttermilk Pancakes](../recetas/dulce/tortitas-americanas-buttermilk-pancakes.md)
