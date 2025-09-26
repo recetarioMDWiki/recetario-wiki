@@ -1,2 +1,0 @@
-Tiramisú	http://blogmegasilvita.com/2014/12/tarta-tiramisu.html	"http://www.sophiebakery.es/2015/07/como-hacer-tiramisu-casero-receta.html
-http://www.marialunarillos.com/blog/2014/06/receta-de-tiramisu-clasico.html

@@ -6,6 +6,7 @@ Para el antiadherente:
 
 3 cucharadas de mantequilla fundida
 Una cucharada de harina
+
 Para el bundt cake de zanahoria:
 
 280 g de harina de repostería
@@ -17,6 +18,7 @@ Una pizca de sal
 350 g de azúcar moreno
 500 g zanahorias ralladas finamente
 250 ml de aceite vegetal
+
 Para la salsa de queso:
 
 80 g de queso crema
