@@ -1,1 +1,0 @@
-Shortbread Cookies	http://www.jaleoenlacocina.com/2015/09/shortbread-cookies-y-el-estreno-de.html	"http://www.marialunarillos.com/blog/2015/12/galletas-shortbread-navidenas.html
