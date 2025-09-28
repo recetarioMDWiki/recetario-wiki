@@ -1,1 +1,0 @@
-"Cookies de avena, chocolate y jengibre - Oatmeal Chocolate Chunk and Ginger Cookies"	http://joythebaker.com/2016/01/classic-chewy-oatmeal-chocolate-chunk-and-ginger-cookies/
