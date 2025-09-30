@@ -1,5 +1,4 @@
 - [american-pie-tarta-de-manzana-americana.md](dulce/american-pie-tarta-de-manzana-americana.md)
-- [angel-food-cake.md](dulce/angel-food-cake.md)
 - [applesauce-bundt-cake.md](dulce/applesauce-bundt-cake.md)
 - [babka-de-chocolate.md](dulce/babka-de-chocolate.md)
 - [babka-de-manzana.md](dulce/babka-de-manzana.md)
@@ -8,7 +7,6 @@
 - [banoffee-pie-helada.md](dulce/banoffee-pie-helada.md)
 - [banoffee-pie.md](dulce/banoffee-pie.md)
 - [barritas-de-manzana-y-avena.md](dulce/barritas-de-manzana-y-avena.md)
-- [beer-brownie.md](dulce/beer-brownie.md)
 - [berlinas-rellenas-de-crema-de-nutella.md](dulce/berlinas-rellenas-de-crema-de-nutella.md)
 - [bizcocho-cebra.md](dulce/bizcocho-cebra.md)
 - [bizcocho-de-arandanos-sin-azucar.md](dulce/bizcocho-de-arandanos-sin-azucar.md)
