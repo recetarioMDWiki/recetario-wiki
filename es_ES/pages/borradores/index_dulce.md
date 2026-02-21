@@ -101,6 +101,7 @@
 - [cobbler-de-melocoton-individual.md](dulce/cobbler-de-melocoton-individual.md)
 - [coca-de-sant-joan.md](dulce/coca-de-sant-joan.md)
 - [cookie-cake-de-chocolate-y-pistachos.md](dulce/cookie-cake-de-chocolate-y-pistachos.md)
+- [cookies-avena-chocolate-cacahuetes.md](nuevas/cookies-avena-chocolate-cacahuetes.md)
 - [cookies-avena-sirope-arce-pasas.md](dulce/cookies-avena-sirope-arce-pasas.md)
 - [cookies-con-chocolate-blanco-y-pistachos.md](dulce/cookies-con-chocolate-blanco-y-pistachos.md)
 - [cookies-con-trocitos-de-chocolate-tamano-xl.md](dulce/cookies-con-trocitos-de-chocolate-tamano-xl.md)
